@@ -1,10 +1,10 @@
 # 「好软分享」软件列表
->【A】
->APKPure：https://www.lanzous.com/b688550
->爱奇艺：https://www.lanzous.com/b688588
->ADM：https://www.lanzous.com/b688921
->AiePin-TV版：https://www.lanzous.com/b688992
->【B】
+> 【A】
+> APKPure：https://www.lanzous.com/b688550
+> 爱奇艺：https://www.lanzous.com/b688588
+> ADM：https://www.lanzous.com/b688921
+> AiePin-TV版：https://www.lanzous.com/b688992
+> 【B】
 >百度网盘：https://www.lanzous.com/b688523
 >哔哩哔哩：https://www.lanzous.com/b688539
 >宝贝听听：https://www.lanzous.com/b688584
