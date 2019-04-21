@@ -1,9 +1,15 @@
-# 「好软分享」软件列表 
-## 【A】 
-APKPure：https://www.lanzous.com/b688550 
-爱奇艺：https://www.lanzous.com/b688588 
-ADM：https://www.lanzous.com/b688921 
+# 「好软分享」软件列表
+
+## 【A】
+
+APKPure：https://www.lanzous.com/b688550
+
+爱奇艺：https://www.lanzous.com/b688588
+
+ADM：https://www.lanzous.com/b688921
+
 AirPin-TV版：https://www.lanzous.com/b688992 
+
 ## 【B】
 
 百度网盘：https://www.lanzous.com/b688523
@@ -104,48 +110,86 @@ PanDownload：https://www.lanzous.com/b688553
 
 PowerClean：https://www.lanzous.com/b688932
 
-【Q】
+##【Q】
 
 QQ音乐：https://www.lanzous.com/b688580
 
 蜻蜓FM：https://www.lanzous.com/b688930
 
-【S】
+##【S】
+
 SpeedTest：https://www.lanzous.com/b688547
+
 搜狗输入法：https://www.lanzous.com/b688598
+
 SD.Maid：https://www.lanzous.com/b688916
+
 扫描全能王：https://www.lanzous.com/b688937
-【T】
+
+##【T】
+
 腾讯视频：https://www.lanzous.com/b688495
+
 腾讯视频极速版：https://www.lanzous.com/b688554
+
 Telegram：https://www.lanzous.com/b688559
+
 淘宝：https://www.lanzous.com/b688595
+
 太极：https://www.lanzous.com/b688925
-【V】
+
+##【V】
+
 VSCO：https://www.lanzous.com/b688548
-【W】
+
+##【W】
+
 wifi万能钥匙：https://www.lanzous.com/b688519
+
 网易公开课：https://www.lanzous.com/b688522
+
 WPS：https://www.lanzous.com/b688535
+
 完美视频大全：https://www.lanzous.com/b688542
+
 网易云音乐：https://www.lanzous.com/b688561
+
 悟饭游戏厅：https://www.lanzous.com/b688576
+
 完美视频大全-TV版：https://www.lanzous.com/b688983
-【X】
+
+##【X】
+
 香哈菜谱：https://www.lanzous.com/b688499
+
 下厨房：https://www.lanzous.com/b688555
+
 XMind(思维导图)：https://www.lanzous.com/b688571
+
 X.Plore：https://www.lanzous.com/b688918
+
 新方圆影视：https://www.lanzous.com/b688922
+
 星集视频-TV版：https://www.lanzous.com/b688994
-【Y】
+
+##【Y】
+
 影迷大院：https://www.lanzous.com/b688526
+
 YouTube：https://www.lanzous.com/b688572
+
 优酷：https://www.lanzous.com/b688591
+
 影视大全：https://www.lanzous.com/b688596
+
 音量增强器：https://www.lanzous.com/b688919
+
 云村清洁工：https://www.lanzous.com/b688920
+
 云视听极光-TV版：https://www.lanzous.com/b688993
-【Z】
+
+##【Z】
+
 支付宝：https://www.lanzous.com/b688599
+
 知乎：https://www.lanzous.com/b688601
