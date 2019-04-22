@@ -4,7 +4,6 @@
 
 【网盘主页】(会显示所有文件，需自行查找)：https://www.lanzous.com/u/yoyodadada
 
-
 【A】
 
 APKPure：https://www.lanzous.com/b688550
@@ -31,6 +30,8 @@ AirPin-TV版：https://www.lanzous.com/b688992
 
 暴风影音-TV版：https://www.lanzous.com/b689909
 
+暴风影音-PC版：https://www.lanzous.com/b691711
+
 【C】
 
 Calc.Business(卡西欧科学计算器)：https://www.lanzous.com/b688575
@@ -40,6 +41,12 @@ CIBN聚精彩-TV版：https://www.lanzous.com/b688995
 橙色直播-TV版：https://www.lanzous.com/b688998
 
 CAD看图王：https://www.lanzous.com/b689947
+
+CGI-PC版：https://www.lanzous.com/b691724
+
+CCleaner-PC版：https://www.lanzous.com/b691727
+
+CAD快速看图-PC版：https://www.lanzous.com/b691728
 
 【D】
 
@@ -68,6 +75,8 @@ Fancast：https://www.lanzous.com/b688538
 海星模拟器：https://www.lanzous.com/b688530
 
 HiPER.Calc(艾泰科学计算器)：https://www.lanzous.com/b688570
+
+HashTab-PC版：https://www.lanzous.com/b691720
 
 【I】
 
@@ -123,6 +132,10 @@ PanDownload：https://www.lanzous.com/b688553
 
 PowerClean：https://www.lanzous.com/b688932
 
+Photoshop-PC版：https://www.lanzous.com/b691716
+
+PanDownload-PC版：https://www.lanzous.com/b691718
+
 【Q】
 
 QQ音乐：https://www.lanzous.com/b688580
@@ -130,6 +143,14 @@ QQ音乐：https://www.lanzous.com/b688580
 蜻蜓FM：https://www.lanzous.com/b688930
 
 QQ轻聊版：https://www.lanzous.com/b689904
+
+QQ音乐-PC版：https://www.lanzous.com/b691712
+
+QQ轻聊版-PC版：https://www.lanzous.com/b691714
+
+【R】
+
+日期计算器-PC版：https://www.lanzous.com/b691709
 
 【S】
 
@@ -140,6 +161,9 @@ SpeedTest：https://www.lanzous.com/b688547
 SD.Maid：https://www.lanzous.com/b688916
 
 扫描全能王：https://www.lanzous.com/b688937
+
+搜狗输入法-PC版：https://www.lanzous.com/b691706
+
 
 【T】
 
@@ -194,6 +218,8 @@ X.Plore：https://www.lanzous.com/b688918
 迅雷：https://www.lanzous.com/b689897
 
 小磁力BT：https://www.lanzous.com/b689937
+
+迅雷-PC版：https://www.lanzous.com/b691700
 
 【Y】
 
