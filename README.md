@@ -105,7 +105,7 @@ MUJI.to.Sleep：https://www.lanzous.com/b688583
 
 美食杰：https://www.lanzous.com/b688586
 
-micro.G(YouTube登陆插件)：https://www.lanzous.com/b688670
+microG(YouTube.Vanced登陆插件)：https://www.lanzous.com/b688670
 
 美柚：https://www.lanzous.com/b688934
 
@@ -199,7 +199,7 @@ X.Plore：https://www.lanzous.com/b688918
 
 影迷大院：https://www.lanzous.com/b688526
 
-YouTube：https://www.lanzous.com/b688572
+YouTube.Vanced(YouTube去广告魔改版)：https://www.lanzous.com/b688572
 
 优酷：https://www.lanzous.com/b688591
 
