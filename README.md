@@ -50,8 +50,6 @@ CAD快速看图-PC版：https://www.lanzous.com/b691728
 
 【D】
 
-抖音：https://www.lanzous.com/b688545
-
 电视猫-TV版：https://www.lanzous.com/b6889863
 
 电影天堂-TV版：https://www.lanzous.com/b688987
