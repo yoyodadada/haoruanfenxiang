@@ -48,6 +48,8 @@ CCleaner-PC版：https://www.lanzous.com/b691727
 
 CAD快速看图-PC版：https://www.lanzous.com/b691728
 
+磁力猫：https://www.lanzous.com/b693302
+
 【D】
 
 电视猫-TV版：https://www.lanzous.com/b6889863
