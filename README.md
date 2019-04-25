@@ -203,6 +203,12 @@ WPS：https://www.lanzous.com/b688535
 
 微博国际版：https://www.lanzous.com/b694814
 
+微软常用运行库合集-PC版：https://www.lanzous.com/b695823
+
+微软.NET.Framework-PC版：https://www.lanzous.com/b695824
+
+微软DirectX9.0c最终用户运行库-PC版：https://www.lanzous.com/b695826
+
 【X】
 
 香哈菜谱：https://www.lanzous.com/b688499
