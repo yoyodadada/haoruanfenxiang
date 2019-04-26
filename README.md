@@ -67,7 +67,7 @@ Dir：https://www.lanzous.com/b689911
 
 【F】
 
-Fancast：https://www.lanzous.com/b688538
+Fancast（听书软件）：https://www.lanzous.com/b688538
 
 【G】
 
@@ -85,7 +85,7 @@ HashTab-PC版：https://www.lanzous.com/b691720
 
 Instagram：https://www.lanzous.com/b688494
 
-IPTV：https://www.lanzous.com/b688529
+IPTV（电视直播软件）：https://www.lanzous.com/b688529
 
 【J】
 
@@ -113,13 +113,13 @@ IPTV：https://www.lanzous.com/b688529
 
 MX.Player：https://www.lanzous.com/b688551
 
-MUJI.to.Sleep：https://www.lanzous.com/b688583
+MUJI.to.Sleep（助眠软件）：https://www.lanzous.com/b688583
 
 美食杰：https://www.lanzous.com/b688586
 
 microG(YouTube.Vanced登陆插件)：https://www.lanzous.com/b688670
 
-美柚：https://www.lanzous.com/b688934
+美柚（经期记录软件）：https://www.lanzous.com/b688934
 
 魔力视频-TV版：https://www.lanzous.com/b688996
 
@@ -127,13 +127,13 @@ microG(YouTube.Vanced登陆插件)：https://www.lanzous.com/b688670
 
 葡萄影视：https://www.lanzous.com/b688517
 
-PrintHand：https://www.lanzous.com/b688537
+PrintHand（手机打印软件）：https://www.lanzous.com/b688537
 
-PrintShare：https://www.lanzous.com/b688543
+PrintShare（手机打印软件）：https://www.lanzous.com/b688543
 
 PanDownload：https://www.lanzous.com/b688553
 
-PowerClean：https://www.lanzous.com/b688932
+PowerClean（清理工具）：https://www.lanzous.com/b688932
 
 Photoshop-PC版：https://www.lanzous.com/b691716
 
@@ -157,7 +157,7 @@ QQ轻聊版-PC版：https://www.lanzous.com/b691714
 
 【S】
 
-SpeedTest：https://www.lanzous.com/b688547
+SpeedTest（网速测试软件）：https://www.lanzous.com/b688547
 
 搜狗输入法：https://www.lanzous.com/b688598
 
@@ -241,9 +241,9 @@ YouTube.Vanced(YouTube去广告魔改版)：https://www.lanzous.com/b688572
 
 影视大全：https://www.lanzous.com/b688596
 
-音量增强器：https://www.lanzous.com/b688919
+音量增强器（网易云音乐Xposed插件）：https://www.lanzous.com/b688919
 
-云村清洁工：https://www.lanzous.com/b688920
+云村清洁工（网易云音乐Xposed插件）：https://www.lanzous.com/b688920
 
 云视听极光-TV版：https://www.lanzous.com/b688993
 
