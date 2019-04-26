@@ -8,13 +8,13 @@
 
 【A】
 
-APKPure：https://www.lanzous.com/b688550
+APKPure（play版软件下载工具）：https://www.lanzous.com/b688550
 
 爱奇艺：https://www.lanzous.com/b688588
 
-ADM：https://www.lanzous.com/b688921
+ADM（手机端下载器）：https://www.lanzous.com/b688921
 
-AirPin-TV版：https://www.lanzous.com/b688992
+AirPin-TV版（手机投屏软件）：https://www.lanzous.com/b688992
 
 【B】
 
