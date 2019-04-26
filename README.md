@@ -45,7 +45,7 @@ CIBN聚精彩-TV版：https://www.lanzous.com/b688995
 
 CAD看图王：https://www.lanzous.com/b689947
 
-CGI-PC版：https://www.lanzous.com/b691724
+CGI-PC版（系统镜像恢复工具）：https://www.lanzous.com/b691724
 
 CCleaner-PC版：https://www.lanzous.com/b691727
 
