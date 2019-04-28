@@ -4,7 +4,7 @@
 
 软件繁多，请善用网页搜索功能查询您想要的软件
 
-【网盘主页】（蓝奏云，已知自动屏蔽掉“色”、“播”、“美”、“优”等字样）：https://www.lanzous.com/u/yoyodadada
+【网盘主页】（蓝奏云，已知自动屏蔽掉“色”、“播”、“美”、“优”、“插”等字样）：https://www.lanzous.com/u/yoyodadada
 
 【A】
 
