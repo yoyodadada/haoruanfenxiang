@@ -86,6 +86,8 @@ Instagram（国外著名图片分享软件）：https://www.lanzous.com/b688494
 
 IPTV（电视直播软件）：https://www.lanzous.com/b688529
 
+IDM（下载工具）：https://www.lanzous.com/b704974
+
 【J】
 
 今日头条：https://www.lanzous.com/b688520
@@ -149,6 +151,8 @@ QQ轻聊版：https://www.lanzous.com/b689904
 QQ音乐-PC版：https://www.lanzous.com/b691712
 
 QQ轻聊版-PC版：https://www.lanzous.com/b691714
+
+QQ：https://www.lanzous.com/b704976
 
 【R】
 
@@ -229,6 +233,8 @@ X.Plore（手机文件管理器）：https://www.lanzous.com/b688918
 小磁力BT（磁力搜索工具）：https://www.lanzous.com/b689937
 
 迅雷-PC版：https://www.lanzous.com/b691700
+
+新方圆影视-TV版：https://www.lanzous.com/b704979
 
 【Y】
 
