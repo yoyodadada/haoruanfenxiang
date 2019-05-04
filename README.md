@@ -10,7 +10,7 @@ Telegram群组：https://t.me/haoruanfenxiangroup
 
 ## 「好软分享」软件列表
 
-软件繁多，请善用网页搜索功能查询您想要的软件
+软件繁多，请善用网页搜索功能（Ctrl + F）查询您想要的软件
 
 【网盘主页】（蓝奏云，已知自动屏蔽掉“色”、“播”、“美”、“优”、“插”等字样）：https://www.lanzous.com/u/yoyodadada
 
