@@ -1,5 +1,13 @@
 # 好软分享
 
+「好软分享」是酷安「姚小贱“精选软件”应用集」的衍生版，合并了「姚小贱“精选TV软件”应用集」，附加了PC软件，因此更名为「好软分享」。每次更新内容详见「更新日志」文件夹中对应的日期，同时在Telegram频道广播以及在酷安“优质APP集散地”看看号中发布。
+
+Telegram频道：https://t.me/haoruanfenxiang
+
+Telegram群组：https://t.me/haoruanfenxiangroup
+
+酷安看看号：https://www.coolapk.com/dyh/1654
+
 ## 「好软分享」软件列表
 
 软件繁多，请善用网页搜索功能查询您想要的软件
