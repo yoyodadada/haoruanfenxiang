@@ -4,7 +4,7 @@
 
 Telegram频道：https://t.me/haoruanfenxiang
 
-Telegram群组：https://t.me/haoruanfenxiangroup
+Telegram群组：https://t.me/haoruanfenxianggroup
 
 酷安看看号：https://www.coolapk.com/dyh/1654
 
