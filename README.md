@@ -178,6 +178,8 @@ SD.Maid（SD女佣）：https://www.lanzous.com/b688916
 
 搜狗输入法-PC版：https://www.lanzous.com/b691706
 
+速盘（SpeedPan）-PC版：https://www.lanzous.com/b712804
+
 【T】
 
 腾讯视频：https://www.lanzous.com/b688495
