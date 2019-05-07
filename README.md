@@ -42,6 +42,8 @@ AirPin-TV版（手机投屏软件）：https://www.lanzous.com/b688992
 
 暴风影音-PC版：https://www.lanzous.com/b691711
 
+哔哩哔哩-TV版：https://www.lanzous.com/b716055
+
 【C】
 
 Calc.Business(卡西欧科学计算器)：https://www.lanzous.com/b688575
@@ -90,6 +92,8 @@ HashTab-PC版（集成到属性的哈希值校验工具）：https://www.lanzous
 
 黑鲨影视：https://www.lanzous.com/b712816
 
+HDP直播-TV版：https://www.lanzous.com/b716073
+
 【I】
 
 Instagram（国外著名图片分享软件）：https://www.lanzous.com/b688494
@@ -101,6 +105,8 @@ IDM（下载工具）：https://www.lanzous.com/b704974
 【J】
 
 今日头条：https://www.lanzous.com/b688520
+
+鲸鱼TV-TV版：https://www.lanzous.com/b716071
 
 【K】
 
@@ -182,6 +188,8 @@ SD.Maid（SD女佣）：https://www.lanzous.com/b688916
 
 速盘（SpeedPan）-PC版：https://www.lanzous.com/b712804
 
+思维导图：https://www.lanzous.com/b716079
+
 【T】
 
 腾讯视频：https://www.lanzous.com/b688495
@@ -201,6 +209,8 @@ tTorrent.Pro（手机端BT下载器）：https://www.lanzous.com/b689942
 【V】
 
 VSCO（图片加滤镜工具）：https://www.lanzous.com/b688548
+
+ViPER4Android.FX（蝰蛇音效V4A）：https://www.lanzous.com/b716067
 
 【W】
 
