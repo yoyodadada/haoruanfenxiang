@@ -170,8 +170,6 @@ QQ音乐-PC版：https://www.lanzous.com/b691712
 
 QQ轻聊版-PC版：https://www.lanzous.com/b691714
 
-QQ：https://www.lanzous.com/b704976
-
 【R】
 
 日期计算器-PC版：https://www.lanzous.com/b691709
