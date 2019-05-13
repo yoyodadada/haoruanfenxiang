@@ -8,6 +8,14 @@ Telegram群组：https://t.me/haoruanfenxianggroup
 
 酷安看看号：https://www.coolapk.com/dyh/1654
 
+## 郑重声明：
+
+①所有软件版权均归原公司或原作者所有，仅供日常使用，不得用于任何商业用途。
+
+②因下载项目分享的资源造成的损失，全部由使用者本人承担。
+
+③如果分享的内容侵害了您的权益，请留言告知，我将第一时间下架相应内容。
+
 ## 「好软分享」软件列表
 
 软件繁多，请善用网页搜索功能（Ctrl + F）查询您想要的软件
@@ -186,7 +194,7 @@ SD.Maid（SD女佣）：https://www.lanzous.com/b688916
 
 搜狗输入法-PC版：https://www.lanzous.com/b691706
 
-速盘（SpeedPan）-PC版：https://www.lanzous.com/b712804
+SpeedPan（速盘）-PC版：https://www.lanzous.com/b712804
 
 思维导图：https://www.lanzous.com/b716079
 
@@ -246,7 +254,7 @@ XMind(思维导图)：https://www.lanzous.com/b688571
 
 X.Plore（手机文件管理器）：https://www.lanzous.com/b688918
 
-新方圆影视（强大的视频播放软件）：https://www.lanzous.com/b688922
+新方圆阅览器（原新方圆影视）：https://www.lanzous.com/b688922
 
 星集视频-TV版（视频播放软件）：https://www.lanzous.com/b688994
 
