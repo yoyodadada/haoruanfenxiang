@@ -264,7 +264,7 @@ X.Plore（手机文件管理器）：https://www.lanzous.com/b688918
 
 迅雷-PC版：https://www.lanzous.com/b691700
 
-新方圆影视-TV版：https://www.lanzous.com/b704979
+新方圆TV-TV版：https://www.lanzous.com/b704979
 
 【Y】
 
