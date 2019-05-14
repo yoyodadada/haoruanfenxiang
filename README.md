@@ -254,7 +254,7 @@ XMind(思维导图)：https://www.lanzous.com/b688571
 
 X.Plore（手机文件管理器）：https://www.lanzous.com/b688918
 
-新方圆阅览器（原新方圆影视）：https://www.lanzous.com/b688922
+新方圆影视（现名方圆阅览器）：https://www.lanzous.com/b688922
 
 星集视频-TV版（视频播放软件）：https://www.lanzous.com/b688994
 
