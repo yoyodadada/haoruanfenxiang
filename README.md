@@ -76,8 +76,6 @@ CAD快速看图-PC版：https://www.lanzous.com/b691728
 
 电影天堂-TV版：https://www.lanzous.com/b688987
 
-Dir（手机清理工具）：https://www.lanzous.com/b689911
-
 电视家-TV版：https://www.lanzous.com/b719500
 
 【E】
