@@ -22,6 +22,8 @@ Telegram群组：https://t.me/haoruanfenxianggroup
 
 软件繁多，请善用网页搜索功能（Ctrl + F）查询您想要的软件
 
+注：更多内部资源请关注Telegram频道或加入Telegram群。
+
 【网盘主页】（蓝奏云，已知自动屏蔽掉“色”、“播”、“美”、“优”、“插”等字样）：https://www.lanzous.com/u/yoyodadada
 
 【A】
