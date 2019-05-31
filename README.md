@@ -102,8 +102,6 @@ HiPER.Calc(艾泰科学计算器)：https://www.lanzous.com/b688570
 
 HashTab-PC版（集成到属性的哈希值校验工具）：https://www.lanzous.com/b691720
 
-黑鲨影视：https://www.lanzous.com/b712816
-
 HDP直播-TV版：https://www.lanzous.com/b716073
 
 【I】
