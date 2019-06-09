@@ -2,13 +2,15 @@
 
 注：手机浏览器看不到软件列表的，点下面那个“View all of README.md”。
 
+注2：本页发布的资源均为公开版，内部资源请加入Telegram频道或群组。
+
 「好软分享」是酷安「姚小贱“精选软件”应用集」的衍生版，合并了「姚小贱“精选TV软件”应用集」，附加了PC软件，因此更名为「好软分享」。每次更新内容详见「更新日志」文件夹中对应的日期，同时在Telegram频道广播以及在酷安“优质APP集散地”看看号中发布。
 
-Telegram频道：https://t.me/haoruanfenxiang
+Telegram频道（推荐加入！用于发布资源，经常发布内部资源）：https://t.me/haoruanfenxiang
 
-Telegram群组：https://t.me/haoruanfenxianggroup
+Telegram群组（推荐加入！用于酷友分享讨论，频道内容自动转发到群组）：https://t.me/haoruanfenxianggroup
 
-酷安看看号：https://www.coolapk.com/dyh/1654
+酷安看看号（用于公开版资源内容发布，发布时已屏蔽“破解版、修改版、去广告版等敏感字样”，具体信息请参见本页更新日志）：https://www.coolapk.com/dyh/1654
 
 ## 郑重声明：
 
@@ -18,7 +20,7 @@ Telegram群组：https://t.me/haoruanfenxianggroup
 
 ③如果分享的内容侵害了您的权益，请留言告知，我将第一时间下架相应内容。
 
-## 「好软分享」软件列表
+## 「好软分享」软件列表（公开版）
 
 软件繁多，请善用网页搜索功能（Ctrl + F）查询您想要的软件
 
