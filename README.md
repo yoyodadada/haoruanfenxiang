@@ -108,11 +108,13 @@ HDP直播-TV版：https://www.lanzous.com/b716073
 
 【I】
 
-Instagram（国外著名图片分享软件）：https://www.lanzous.com/b688494
+Instagram（停更）：https://www.lanzous.com/b688494
 
 IPTV（电视直播软件）：https://www.lanzous.com/b688529
 
 IDM（下载工具）：https://www.lanzous.com/b704974
+
+InstaMod（第三方Instagram）：https://www.lanzous.com/b778932
 
 【J】
 
