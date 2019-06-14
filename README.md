@@ -170,6 +170,8 @@ Photoshop-PC版：https://www.lanzous.com/b691716
 
 PanDownload-PC版：https://www.lanzous.com/b691718
 
+PotPlayer-PC版：https://www.lanzous.com/b782475
+
 【Q】
 
 QQ音乐：https://www.lanzous.com/b688580
