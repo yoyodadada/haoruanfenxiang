@@ -188,6 +188,8 @@ QQ轻聊版-PC版：https://www.lanzous.com/b691714
 
 日期计算器-PC版：https://www.lanzous.com/b691709
 
+rufus-PC版：https://www.lanzous.com/b787693
+
 【S】
 
 SpeedTest（网速测试软件）：https://www.lanzous.com/b688547
