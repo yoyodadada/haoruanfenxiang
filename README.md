@@ -280,7 +280,7 @@ X.Plore（手机文件管理器）：https://www.lanzous.com/b688918
 
 影迷大院（视频播放软件）：https://www.lanzous.com/b688526
 
-YouTube.Vanced(YouTube去广告魔改版)：https://www.lanzous.com/b688572
+YouTube.Vanced(YouTube去广告魔改版，需要配合登陆插件microG)：https://www.lanzous.com/b688572
 
 优酷：https://www.lanzous.com/b688591
 
