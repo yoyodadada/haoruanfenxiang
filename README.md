@@ -278,7 +278,7 @@ X.Plore（手机文件管理器）：https://www.lanzous.com/b688918
 
 【Y】
 
-影迷大院（视频播放软件）：https://www.lanzous.com/b688526
+影迷大院（现名星雨视频）：https://www.lanzous.com/b688526
 
 YouTube.Vanced(YouTube去广告魔改版，需要配合登陆插件microG)：https://www.lanzous.com/b688572
 
