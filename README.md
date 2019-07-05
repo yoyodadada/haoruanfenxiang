@@ -230,6 +230,8 @@ VSCO（图片加滤镜工具）：https://www.lanzous.com/b688548
 
 ViPER4Android.FX（蝰蛇音效V4A）：https://www.lanzous.com/b716067
 
+Village（百度山寨云）：https://www.lanzous.com/b818487
+
 【W】
 
 wifi万能钥匙：https://www.lanzous.com/b688519
