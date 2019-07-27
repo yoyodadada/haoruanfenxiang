@@ -106,6 +106,8 @@ HashTab-PC版（集成到属性的哈希值校验工具）：https://www.lanzous
 
 HDP直播-TV版：https://www.lanzous.com/b716073
 
+海阔（新方圆影视升级版）：https://www.lanzous.com/b861451
+
 【I】
 
 Instagram（停更）：https://www.lanzous.com/b688494
