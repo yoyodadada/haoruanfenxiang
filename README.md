@@ -58,6 +58,8 @@ AirPin-TV版（手机投屏软件）：https://www.lanzous.com/b688992
 
 哔哩哔哩-TV版：https://www.lanzous.com/b716055
 
+百度地图：https://www.lanzous.com/b909761
+
 【C】
 
 Calc.Business(卡西欧科学计算器)：https://www.lanzous.com/b688575
