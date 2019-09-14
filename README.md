@@ -160,6 +160,10 @@ microG(YouTube.Vanced登陆插件)：https://www.lanzous.com/b688670
 
 魔力视频-TV版：https://www.lanzous.com/b688996
 
+【N】
+
+南瓜影视：https://www.lanzous.com/b977204
+
 【P】
 
 葡萄影视：https://www.lanzous.com/b688517
