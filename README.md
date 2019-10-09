@@ -134,6 +134,8 @@ InstaMod（第三方Instagram）：https://www.lanzous.com/b778932
 
 酷我音乐：https://www.lanzous.com/b789326
 
+酷我音乐-PC版：https://www.lanzous.com/b01ay4hkh
+
 【L】
 
 乐播（山寨版麻花影视）：https://www.lanzous.com/b688552
