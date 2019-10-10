@@ -46,4 +46,16 @@
 45.微博国际版：最新版：v3.3.1。推荐使用：Share。
 46.微软常用运行库合集-PC版：最新版：v2019.09.25。下载地址：https://www.repaik.com/forum.php?mod=forumdisplay&amp;fid=68&amp;filter=typeid&amp;typeid=168
 47.微软.NET.Framework-PC版：最新版：v4.7.2(2019.03)。下载地址：https://www.repaik.com/forum.php?mod=forumdisplay&amp;fid=68&amp;filter=typeid&amp;typeid=168
-48.微软DirectX9.0c最终用户运行库-PC版：最新版：v2015.01.14。下载地址：https://www.repaik.com/forum.php?mod=forumdisplay&am
+48.微软DirectX9.0c最终用户运行库-PC版：最新版：v2015.01.14。下载地址：https://www.repaik.com/forum.php?mod=forumdisplay&amp;fid=68&amp;filter=typeid&amp;typeid=168
+49.XMind：最新版：v1.3.4。推荐使用：思维导图。
+50.香哈菜谱：最新版：v7.7.2。推荐使用：下厨房。
+51.美食杰：最新版：v6.9.5。推荐使用：下厨房。
+52.新方圆影视（现名新方圆浏览器）：最新版：v6.0.0.0。推荐使用：南瓜影视。
+53.星集视频-TV版：最新版：v2.2。推荐使用：CIBN聚精彩、入正。
+54.迅雷：最新版：v5.71.2.3495。更多版本请到tg群下载。
+55.小磁力BT：最新版：v4.6.1。为避免涉黄，磁力搜索软件停更。
+56.新方圆TV-TV版：最新版：v1.19.0509.23。推荐使用：暴风影音-TV版。
+57.影迷大院（现名星雨视频）：最新版：v2.3.1。推荐使用：南瓜影视。
+58.影视大全：最新版：v4.6.2。推荐使用：南瓜影视。
+59.音量增强器：最新版：v0.0.34。下载地址：https://github.com/bin456789/Unblock163MusicClient-Xposed
+60.云村清洁工：最新版：v2.7.0。下载地址：https://github.com/zjns/PureNeteaseCloudMusic-Xposed
