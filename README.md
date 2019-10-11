@@ -36,7 +36,7 @@ APKPure（play版软件下载工具）：https://www.lanzous.com/b688550
 
 ADM（手机端下载器）：https://www.lanzous.com/b688921
 
-AirPin-TV版（手机投屏软件）：https://www.lanzous.com/b688992
+【停更】AirPin-TV版（手机投屏软件）：https://www.lanzous.com/b688992
 
 爱奇艺极速版：https://www.lanzous.com/b01ay6tbc
 
@@ -46,17 +46,17 @@ AirPin-TV版（手机投屏软件）：https://www.lanzous.com/b688992
 
 哔哩哔哩：https://www.lanzous.com/b688539
 
-宝贝听听（儿歌软件）：https://www.lanzous.com/b688584
+【停更】宝贝听听（儿歌软件）：https://www.lanzous.com/b688584
 
 贝瓦儿歌（儿歌软件）：https://www.lanzous.com/b688585
 
-白鲸TV-TV版（麻花影视TV版）：https://www.lanzous.com/b688989
+【停更】白鲸TV-TV版（麻花影视TV版）：https://www.lanzous.com/b688989
 
 贝瓦儿歌-TV版：https://www.lanzous.com/b688990
 
 暴风影音-TV版：https://www.lanzous.com/b689909
 
-暴风影音-PC版：https://www.lanzous.com/b691711
+【停更】暴风影音-PC版：https://www.lanzous.com/b691711
 
 哔哩哔哩-TV版：https://www.lanzous.com/b716055
 
@@ -72,21 +72,21 @@ CIBN聚精彩-TV版（TV版PPTV）：https://www.lanzous.com/b688995
 
 CAD看图王：https://www.lanzous.com/b689947
 
-CGI-PC版（系统镜像恢复工具）：https://www.lanzous.com/b691724
+【停更】CGI-PC版（系统镜像恢复工具）：https://www.lanzous.com/b691724
 
 CCleaner-PC版（著名清理工具）：https://www.lanzous.com/b691727
 
 CAD快速看图-PC版：https://www.lanzous.com/b691728
 
-磁力猫（磁力搜索工具）：https://www.lanzous.com/b693302
+【停更】磁力猫（磁力搜索工具）：https://www.lanzous.com/b693302
 
 【D】
 
-电视猫-TV版：https://www.lanzous.com/b688986
+【停更】电视猫-TV版：https://www.lanzous.com/b688986
 
-电影天堂-TV版：https://www.lanzous.com/b688987
+【停更】电影天堂-TV版：https://www.lanzous.com/b688987
 
-电视家-TV版：https://www.lanzous.com/b719500
+【停更】电视家-TV版：https://www.lanzous.com/b719500
 
 【E】
 
@@ -94,7 +94,7 @@ CAD快速看图-PC版：https://www.lanzous.com/b691728
 
 【F】
 
-Fancast（听书软件）：https://www.lanzous.com/b688538
+【停更】Fancast（听书软件）：https://www.lanzous.com/b688538
 
 【G】
 
@@ -104,19 +104,19 @@ Fancast（听书软件）：https://www.lanzous.com/b688538
 
 海星模拟器（FC等游戏模拟器）：https://www.lanzous.com/b688530
 
-HiPER.Calc(艾泰科学计算器)：https://www.lanzous.com/b688570
+【停更】HiPER.Calc(艾泰科学计算器)：https://www.lanzous.com/b688570
 
 HashTab-PC版（集成到属性的哈希值校验工具）：https://www.lanzous.com/b691720
 
-HDP直播-TV版：https://www.lanzous.com/b716073
+【停更】HDP直播-TV版：https://www.lanzous.com/b716073
 
-海阔（新方圆影视升级版）：https://www.lanzous.com/b861451
+【停更】海阔（新方圆影视升级版）：https://www.lanzous.com/b861451
 
 【I】
 
-Instagram（停更）：https://www.lanzous.com/b688494
+【停更】Instagram：https://www.lanzous.com/b688494
 
-IPTV（电视直播软件）：https://www.lanzous.com/b688529
+【停更】IPTV（电视直播软件）：https://www.lanzous.com/b688529
 
 IDM（下载工具）：https://www.lanzous.com/b704974
 
@@ -126,11 +126,11 @@ InstaMod（第三方Instagram）：https://www.lanzous.com/b778932
 
 今日头条：https://www.lanzous.com/b688520
 
-鲸鱼TV-TV版：https://www.lanzous.com/b716071
+【停更】鲸鱼TV-TV版：https://www.lanzous.com/b716071
 
 【K】
 
-快点投屏（手机投屏工具）：https://www.lanzous.com/b688567
+【停更】快点投屏（手机投屏工具）：https://www.lanzous.com/b688567
 
 快图浏览：https://www.lanzous.com/b688935
 
@@ -140,11 +140,11 @@ InstaMod（第三方Instagram）：https://www.lanzous.com/b778932
 
 【L】
 
-乐播（山寨版麻花影视）：https://www.lanzous.com/b688552
+【停更】乐播（山寨版麻花影视）：https://www.lanzous.com/b688552
 
 猎豹清理大师精简版：https://www.lanzous.com/b688933
 
-猎豹清理大师-TV版：https://www.lanzous.com/b689929
+【停更】猎豹清理大师-TV版：https://www.lanzous.com/b689929
 
 【M】
 
@@ -154,15 +154,15 @@ InstaMod（第三方Instagram）：https://www.lanzous.com/b778932
 
 MX.Player（特别好用的手机视频播放器）：https://www.lanzous.com/b688551
 
-MUJI.to.Sleep（助眠软件）：https://www.lanzous.com/b688583
+【停更】MUJI.to.Sleep（助眠软件）：https://www.lanzous.com/b688583
 
-美食杰（菜谱软件）：https://www.lanzous.com/b688586
+【停更】美食杰（菜谱软件）：https://www.lanzous.com/b688586
 
 microG(YouTube.Vanced登陆插件)：https://www.lanzous.com/b688670
 
 美柚（经期记录软件）：https://www.lanzous.com/b688934
 
-魔力视频-TV版：https://www.lanzous.com/b688996
+【停更】魔力视频-TV版：https://www.lanzous.com/b688996
 
 【N】
 
@@ -170,21 +170,21 @@ microG(YouTube.Vanced登陆插件)：https://www.lanzous.com/b688670
 
 【P】
 
-葡萄影视：https://www.lanzous.com/b688517
+【停更】葡萄影视：https://www.lanzous.com/b688517
 
-PrintHand（手机打印软件）：https://www.lanzous.com/b688537
+【停更】PrintHand（手机打印软件）：https://www.lanzous.com/b688537
 
-PrintShare（手机打印软件）：https://www.lanzous.com/b688543
+【停更】PrintShare（手机打印软件）：https://www.lanzous.com/b688543
 
 PanDownload（百度网盘下载工具）：https://www.lanzous.com/b688553
 
 PowerClean（清理工具）：https://www.lanzous.com/b688932
 
-Photoshop-PC版：https://www.lanzous.com/b691716
+【停更】Photoshop-PC版：https://www.lanzous.com/b691716
 
-PanDownload-PC版：https://www.lanzous.com/b691718
+【停更】PanDownload-PC版：https://www.lanzous.com/b691718
 
-PotPlayer-PC版：https://www.lanzous.com/b782475
+【停更】PotPlayer-PC版：https://www.lanzous.com/b782475
 
 【Q】
 
@@ -192,17 +192,17 @@ QQ音乐：https://www.lanzous.com/b688580
 
 蜻蜓FM：https://www.lanzous.com/b688930
 
-QQ轻聊版：https://www.lanzous.com/b689904
+【停更】QQ轻聊版：https://www.lanzous.com/b689904
 
 QQ音乐-PC版：https://www.lanzous.com/b691712
 
-QQ轻聊版-PC版：https://www.lanzous.com/b691714
+【停更】QQ轻聊版-PC版：https://www.lanzous.com/b691714
 
 【R】
 
-日期计算器-PC版：https://www.lanzous.com/b691709
+【停更】日期计算器-PC版：https://www.lanzous.com/b691709
 
-rufus-PC版：https://www.lanzous.com/b787693
+【停更】rufus-PC版：https://www.lanzous.com/b787693
 
 【S】
 
@@ -214,9 +214,9 @@ SD.Maid（SD女佣）：https://www.lanzous.com/b688916
 
 扫描全能王（手机扫描仪）：https://www.lanzous.com/b688937
 
-搜狗输入法-PC版：https://www.lanzous.com/b691706
+【停更】搜狗输入法-PC版：https://www.lanzous.com/b691706
 
-SpeedPan（速盘）-PC版：https://www.lanzous.com/b712804
+【停更】SpeedPan（速盘）-PC版：https://www.lanzous.com/b712804
 
 思维导图：https://www.lanzous.com/b716079
 
@@ -224,17 +224,17 @@ SpeedPan（速盘）-PC版：https://www.lanzous.com/b712804
 
 腾讯视频：https://www.lanzous.com/b688495
 
-腾讯视频极速版：https://www.lanzous.com/b688554
+【停更】腾讯视频极速版：https://www.lanzous.com/b688554
 
-Telegram（电报，国外著名聊天软件）：https://www.lanzous.com/b688559
+【停更】Telegram（电报，国外著名聊天软件）：https://www.lanzous.com/b688559
 
 淘宝：https://www.lanzous.com/b688595
 
-太极（免root使用Xposed插件）：https://www.lanzous.com/b688925
+【停更】太极（免root使用Xposed插件）：https://www.lanzous.com/b688925
 
 Tim（办公版QQ）：https://www.lanzous.com/b689917
 
-tTorrent.Pro（手机端BT下载器）：https://www.lanzous.com/b689942
+【停更】tTorrent.Pro（手机端BT下载器）：https://www.lanzous.com/b689942
 
 Tim-PC版：https://www.lanzous.com/b01ay6ufc
 
@@ -242,69 +242,69 @@ Tim-PC版：https://www.lanzous.com/b01ay6ufc
 
 VSCO（图片加滤镜工具）：https://www.lanzous.com/b688548
 
-ViPER4Android.FX（蝰蛇音效V4A）：https://www.lanzous.com/b716067
+【停更】ViPER4Android.FX（蝰蛇音效V4A）：https://www.lanzous.com/b716067
 
-Village（百度山寨云）：https://www.lanzous.com/b818487
+【停更】Village（百度山寨云）：https://www.lanzous.com/b818487
 
 【W】
 
-wifi万能钥匙：https://www.lanzous.com/b688519
+【停更】wifi万能钥匙：https://www.lanzous.com/b688519
 
-网易公开课：https://www.lanzous.com/b688522
+【停更】网易公开课：https://www.lanzous.com/b688522
 
 WPS：https://www.lanzous.com/b688535
 
-完美视频大全：https://www.lanzous.com/b688542
+【停更】完美视频大全：https://www.lanzous.com/b688542
 
 网易云音乐：https://www.lanzous.com/b688561
 
-悟饭游戏厅（FC等游戏模拟器）：https://www.lanzous.com/b688576
+【停更】悟饭游戏厅（FC等游戏模拟器）：https://www.lanzous.com/b688576
 
-完美视频大全-TV版：https://www.lanzous.com/b688983
+【停更】完美视频大全-TV版：https://www.lanzous.com/b688983
 
-微博国际版：https://www.lanzous.com/b694814
+【停更】微博国际版：https://www.lanzous.com/b694814
 
-微软常用运行库合集-PC版：https://www.lanzous.com/b695823
+【停更】微软常用运行库合集-PC版：https://www.lanzous.com/b695823
 
-微软.NET.Framework-PC版：https://www.lanzous.com/b695824
+【停更】微软.NET.Framework-PC版：https://www.lanzous.com/b695824
 
-微软DirectX9.0c最终用户运行库-PC版：https://www.lanzous.com/b695826
+【停更】微软DirectX9.0c最终用户运行库-PC版：https://www.lanzous.com/b695826
 
 【X】
 
-香哈菜谱（菜谱软件）：https://www.lanzous.com/b688499
+【停更】香哈菜谱（菜谱软件）：https://www.lanzous.com/b688499
 
 下厨房（菜谱软件）：https://www.lanzous.com/b688555
 
-XMind(思维导图)：https://www.lanzous.com/b688571
+【停更】XMind(思维导图)：https://www.lanzous.com/b688571
 
 X.Plore（手机文件管理器）：https://www.lanzous.com/b688918
 
-新方圆影视（现名方圆阅览器）：https://www.lanzous.com/b688922
+【停更】新方圆影视（现名方圆阅览器）：https://www.lanzous.com/b688922
 
-星集视频-TV版（视频播放软件）：https://www.lanzous.com/b688994
+【停更】星集视频-TV版（视频播放软件）：https://www.lanzous.com/b688994
 
-迅雷：https://www.lanzous.com/b689897
+【停更】迅雷：https://www.lanzous.com/b689897
 
-小磁力BT（磁力搜索工具）：https://www.lanzous.com/b689937
+【停更】小磁力BT（磁力搜索工具）：https://www.lanzous.com/b689937
 
 迅雷-PC版：https://www.lanzous.com/b691700
 
-新方圆TV-TV版：https://www.lanzous.com/b704979
+【停更】新方圆TV-TV版：https://www.lanzous.com/b704979
 
 【Y】
 
-影迷大院（现名星雨视频）：https://www.lanzous.com/b688526
+【停更】影迷大院（现名星雨视频）：https://www.lanzous.com/b688526
 
 YouTube.Vanced(YouTube去广告魔改版，需要配合登陆插件microG)：https://www.lanzous.com/b688572
 
 优酷：https://www.lanzous.com/b688591
 
-影视大全：https://www.lanzous.com/b688596
+【停更】影视大全：https://www.lanzous.com/b688596
 
-音量增强器（网易云音乐Xposed插件）：https://www.lanzous.com/b688919
+【停更】音量增强器（网易云音乐Xposed插件）：https://www.lanzous.com/b688919
 
-云村清洁工（网易云音乐Xposed插件）：https://www.lanzous.com/b688920
+【停更】云村清洁工（网易云音乐Xposed插件）：https://www.lanzous.com/b688920
 
 云视听极光-TV版（腾讯视频TV版）：https://www.lanzous.com/b688993
 
