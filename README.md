@@ -38,6 +38,8 @@ ADM（手机端下载器）：https://www.lanzous.com/b688921
 
 AirPin-TV版（手机投屏软件）：https://www.lanzous.com/b688992
 
+爱奇艺极速版：https://www.lanzous.com/b01ay6tbc
+
 【B】
 
 百度网盘：https://www.lanzous.com/b688523
@@ -233,6 +235,8 @@ Telegram（电报，国外著名聊天软件）：https://www.lanzous.com/b68855
 Tim（办公版QQ）：https://www.lanzous.com/b689917
 
 tTorrent.Pro（手机端BT下载器）：https://www.lanzous.com/b689942
+
+Tim-PC版：https://www.lanzous.com/b01ay6ufc
 
 【V】
 
