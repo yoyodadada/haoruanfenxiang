@@ -74,7 +74,7 @@ CAD看图王：https://www.lanzous.com/b689947
 
 【停更】CGI-PC版（系统镜像恢复工具）：https://www.lanzous.com/b691724
 
-CCleaner-PC版（著名清理工具）：https://www.lanzous.com/b691727
+【停更】CCleaner-PC版（著名清理工具）：https://www.lanzous.com/b691727
 
 CAD快速看图-PC版：https://www.lanzous.com/b691728
 
@@ -158,7 +158,7 @@ MX.Player（特别好用的手机视频播放器）：https://www.lanzous.com/b6
 
 【停更】美食杰（菜谱软件）：https://www.lanzous.com/b688586
 
-microG(YouTube.Vanced登陆插件)：https://www.lanzous.com/b688670
+【停更】microG(YouTube.Vanced登陆插件)：https://www.lanzous.com/b688670
 
 美柚（经期记录软件）：https://www.lanzous.com/b688934
 
@@ -206,7 +206,7 @@ QQ音乐-PC版：https://www.lanzous.com/b691712
 
 【S】
 
-SpeedTest（网速测试软件）：https://www.lanzous.com/b688547
+【停更】SpeedTest（网速测试软件）：https://www.lanzous.com/b688547
 
 搜狗输入法：https://www.lanzous.com/b688598
 
@@ -236,7 +236,7 @@ Tim（办公版QQ）：https://www.lanzous.com/b689917
 
 【停更】tTorrent.Pro（手机端BT下载器）：https://www.lanzous.com/b689942
 
-Tim-PC版：https://www.lanzous.com/b01ay6ufc
+【停更】Tim-PC版：https://www.lanzous.com/b01ay6ufc
 
 【V】
 
@@ -296,7 +296,7 @@ X.Plore（手机文件管理器）：https://www.lanzous.com/b688918
 
 【停更】影迷大院（现名星雨视频）：https://www.lanzous.com/b688526
 
-YouTube.Vanced(YouTube去广告魔改版，需要配合登陆插件microG)：https://www.lanzous.com/b688572
+【停更】YouTube.Vanced(YouTube去广告魔改版，需要配合登陆插件microG)：https://www.lanzous.com/b688572
 
 优酷：https://www.lanzous.com/b688591
 
