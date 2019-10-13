@@ -224,7 +224,7 @@ SD.Maid（SD女佣）：https://www.lanzous.com/b688916
 
 腾讯视频：https://www.lanzous.com/b688495
 
-【停更】腾讯视频极速版：https://www.lanzous.com/b688554
+腾讯视频极速版：https://www.lanzous.com/b688554
 
 【停更】Telegram（电报，国外著名聊天软件）：https://www.lanzous.com/b688559
 
@@ -237,6 +237,10 @@ Tim（办公版QQ）：https://www.lanzous.com/b689917
 【停更】tTorrent.Pro（手机端BT下载器）：https://www.lanzous.com/b689942
 
 【停更】Tim-PC版：https://www.lanzous.com/b01ay6ufc
+
+【U】
+
+【停更】UnblockMusic（网易云音乐灰歌曲解锁工具）：https://www.lanzous.com/b01aya7ad
 
 【V】
 
