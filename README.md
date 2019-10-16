@@ -128,6 +128,8 @@ InstaMod（第三方Instagram）：https://www.lanzous.com/b778932
 
 【停更】鲸鱼TV-TV版：https://www.lanzous.com/b716071
 
+京东：https://www.lanzous.com/b01ayf0ub
+
 【K】
 
 【停更】快点投屏（手机投屏工具）：https://www.lanzous.com/b688567
@@ -266,7 +268,7 @@ WPS：https://www.lanzous.com/b688535
 
 【停更】完美视频大全-TV版：https://www.lanzous.com/b688983
 
-【停更】微博国际版：https://www.lanzous.com/b694814
+微博国际版：https://www.lanzous.com/b694814
 
 【停更】微软常用运行库合集-PC版：https://www.lanzous.com/b695823
 
@@ -295,6 +297,8 @@ X.Plore（手机文件管理器）：https://www.lanzous.com/b688918
 迅雷-PC版：https://www.lanzous.com/b691700
 
 【停更】新方圆TV-TV版：https://www.lanzous.com/b704979
+
+喜马拉雅FM：https://www.lanzous.com/b01ayf0wd
 
 【Y】
 
