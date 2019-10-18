@@ -10,7 +10,7 @@ Telegram频道（推荐加入！用于发布资源，经常发布内部资源）
 
 Telegram群组（推荐加入！用于酷友分享讨论，频道内容自动转发到群组）：https://t.me/haoruanfenxianggroup
 
-酷安看看号（用于公开版资源内容发布，发布时已屏蔽“破解版、修改版、去广告版等敏感字样”，具体信息请参见本页更新日志）：https://www.coolapk.com/dyh/1654
+酷安看看号（删动态太严重，现在除了每次更新发一句“XXXXXX更新”也没什么作用了）：https://www.coolapk.com/dyh/1654
 
 ## 郑重声明：
 
