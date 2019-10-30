@@ -142,7 +142,7 @@ InstaMod（第三方Instagram）：https://www.lanzous.com/b778932
 
 【L】
 
-【停更】乐播（山寨版麻花影视）：https://www.lanzous.com/b688552
+乐播影视：https://www.lanzous.com/b688552
 
 猎豹清理大师精简版：https://www.lanzous.com/b688933
 
