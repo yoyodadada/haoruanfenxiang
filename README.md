@@ -170,6 +170,8 @@ MX.Player（特别好用的手机视频播放器）：https://www.lanzous.com/b6
 
 南瓜影视：https://www.lanzous.com/b977204
 
+南瓜美剧：https://www.lanzous.com/b01azoofa
+
 【P】
 
 【停更】葡萄影视：https://www.lanzous.com/b688517
