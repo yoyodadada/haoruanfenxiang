@@ -26,9 +26,12 @@ Telegram群组（推荐加入！用于酷友分享讨论，频道内容自动转
 
 注：更多内部资源请关注Telegram频道或加入Telegram群。
 
-【网盘主页】（蓝奏云，已知自动屏蔽掉“色”、“播”、“美”、“优”、“插”等字样）：https://www.lanzous.com/u/yoyodadada
+【网盘主页】（蓝奏云，已知自动屏蔽掉“色”、“播”、“美”、“优”、“插”等字样）：
+
+https://www.lanzous.com/u/yoyodadada
 
 【未归类】（一些未归类的比较好用的软件，不定时更新，不追新）
+
 https://www.lanzous.com/b01b01h9a
 
 【A】
