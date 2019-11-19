@@ -142,7 +142,7 @@ InstaMod（第三方Instagram）：https://www.lanzous.com/b778932
 
 【停更】快点投屏（手机投屏工具）：https://www.lanzous.com/b688567
 
-快图浏览：https://www.lanzous.com/b688935
+快图浏览（画廊）：https://www.lanzous.com/b688935
 
 酷我音乐：https://www.lanzous.com/b789326
 
