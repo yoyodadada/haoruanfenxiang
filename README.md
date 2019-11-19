@@ -86,13 +86,15 @@ CAD快速看图-PC版：https://www.lanzous.com/b691728
 
 【停更】磁力猫（磁力搜索工具）：https://www.lanzous.com/b693302
 
+CIBN酷喵影视-TV版：https://www.lanzous.com/b01b01k6f
+
 【D】
 
 【停更】电视猫-TV版：https://www.lanzous.com/b688986
 
 【停更】电影天堂-TV版：https://www.lanzous.com/b688987
 
-【停更】电视家-TV版：https://www.lanzous.com/b719500
+电视家-TV版：https://www.lanzous.com/b719500
 
 【E】
 
@@ -171,6 +173,8 @@ MX.Player（特别好用的手机视频播放器）：https://www.lanzous.com/b6
 美柚（经期记录软件）：https://www.lanzous.com/b688934
 
 【停更】魔力视频-TV版：https://www.lanzous.com/b688996
+
+芒果TV-TV版：https://www.lanzous.com/b01b01k8h
 
 【N】
 
