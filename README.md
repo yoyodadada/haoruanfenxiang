@@ -220,7 +220,7 @@ QQ音乐-PC版：https://www.lanzous.com/b691712
 
 【S】
 
-【停更】SpeedTest（网速测试软件）：https://www.lanzous.com/b688547
+SpeedTest（网速测试软件）：https://www.lanzous.com/b688547
 
 搜狗输入法：https://www.lanzous.com/b688598
 
@@ -253,6 +253,8 @@ Tim（办公版QQ）：https://www.lanzous.com/b689917
 【停更】tTorrent.Pro（手机端BT下载器）：https://www.lanzous.com/b689942
 
 【停更】Tim-PC版：https://www.lanzous.com/b01ay6ufc
+
+腾讯视频-PC版：https://www.lanzous.com/b01b1441i
 
 【U】
 
@@ -313,6 +315,8 @@ X.Plore（手机文件管理器）：https://www.lanzous.com/b688918
 【停更】新方圆TV-TV版：https://www.lanzous.com/b704979
 
 喜马拉雅FM：https://www.lanzous.com/b01ayf0wd
+
+迅游手游加速器：https://www.lanzous.com/b01b1444b
 
 【Y】
 
