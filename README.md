@@ -60,7 +60,7 @@ ADM（手机端下载器）：https://www.lanzous.com/b688921
 
 贝瓦儿歌-TV版：https://www.lanzous.com/b688990
 
-暴风影音-TV版：https://www.lanzous.com/b689909
+【停更】暴风影音-TV版：https://www.lanzous.com/b689909
 
 【停更】暴风影音-PC版：https://www.lanzous.com/b691711
 
