@@ -334,6 +334,8 @@ X.Plore（手机文件管理器）：https://www.lanzous.com/b688918
 
 云视听极光-TV版（腾讯视频TV版）：https://www.lanzous.com/b688993
 
+云视听悦厅TV-TV版（搜狐视频TV版）：https://www.lanzous.com/b01b1ntde
+
 【Z】
 
 支付宝：https://www.lanzous.com/b688599
