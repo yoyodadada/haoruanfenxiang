@@ -292,6 +292,8 @@ WPS：https://www.lanzous.com/b688535
 
 【停更】微软DirectX9.0c最终用户运行库-PC版：https://www.lanzous.com/b695826
 
+【停更】我的听书：https://www.lanzous.com/b01b34a7c
+
 【X】
 
 【停更】香哈菜谱（菜谱软件）：https://www.lanzous.com/b688499
