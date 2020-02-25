@@ -324,7 +324,7 @@ X.Plore（手机文件管理器）：https://www.lanzous.com/b688918
 
 【停更】影迷大院（现名星雨视频）：https://www.lanzous.com/b688526
 
-【停更】YouTube.Vanced(YouTube去广告魔改版，需要配合登陆插件microG)：https://www.lanzous.com/b688572
+YouTube.Vanced(YouTube去广告魔改版，需要配合登陆插件microG)：https://www.lanzous.com/b688572
 
 优酷：https://www.lanzous.com/b688591
 
