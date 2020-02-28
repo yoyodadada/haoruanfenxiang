@@ -212,6 +212,8 @@ QQ音乐-PC版：https://www.lanzous.com/b691712
 
 【停更】QQ轻聊版-PC版：https://www.lanzous.com/b691714
 
+QQ：https://www.lanzous.com/b01b6ay1e
+
 【R】
 
 【停更】日期计算器-PC版：https://www.lanzous.com/b691709
