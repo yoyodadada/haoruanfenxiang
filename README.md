@@ -210,6 +210,8 @@ QQ音乐-PC版：https://www.lanzous.com/b691712
 
 QQ：https://www.lanzous.com/b01b6ay1e
 
+QQ-PC版：https://www.lanzous.com/b01b7fkvg
+
 【R】
 
 【停更】日期计算器-PC版：https://www.lanzous.com/b691709
