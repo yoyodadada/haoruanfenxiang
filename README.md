@@ -96,6 +96,8 @@ CIBN酷喵影视-TV版：https://www.lanzous.com/b01b01k6f
 
 【停更】儿歌多多：https://www.lanzous.com/b688533
 
+Everything-PC版：https://www.lanzous.com/b01b8a84d
+
 【F】
 
 【停更】Fancast：https://www.lanzous.com/b688538
@@ -235,6 +237,8 @@ SD.Maid：https://www.lanzous.com/b688916
 思维导图：https://www.lanzous.com/b716079
 
 水印相机：https://www.lanzous.com/b01b0w34h
+
+搜书大师：https://www.lanzous.com/b01b8a87g
 
 【T】
 
