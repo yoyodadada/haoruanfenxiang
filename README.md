@@ -118,6 +118,8 @@ Everything-PC版：https://www.lanzous.com/b01b8a84d
 
 【停更】海阔：https://www.lanzous.com/b861451
 
+红椒影视：https://www.lanzous.com/b01bamkje
+
 【I】
 
 【停更】Instagram：https://www.lanzous.com/b688494
@@ -256,7 +258,7 @@ Tim：https://www.lanzous.com/b689917
 
 【停更】tTorrent.Pro：https://www.lanzous.com/b689942
 
-【停更】Tim-PC版：https://www.lanzous.com/b01ay6ufc
+Tim-PC版：https://www.lanzous.com/b01ay6ufc
 
 腾讯视频-PC版：https://www.lanzous.com/b01b1441i
 
@@ -298,6 +300,8 @@ WPS：https://www.lanzous.com/b688535
 
 【停更】我的听书：https://www.lanzous.com/b01b34a7c
 
+微信-PC版：https://www.lanzous.com/b01ban6ob
+
 【X】
 
 【停更】香哈菜谱：https://www.lanzous.com/b688499
@@ -326,7 +330,7 @@ X.Plore：https://www.lanzous.com/b688918
 
 【Y】
 
-【停更】影迷大院：https://www.lanzous.com/b688526
+影迷大院：https://www.lanzous.com/b688526
 
 YouTube.Vanced：https://www.lanzous.com/b688572
 
