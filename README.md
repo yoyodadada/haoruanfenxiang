@@ -28,83 +28,83 @@ Telegram群组（推荐加入！用于酷友分享讨论，频道内容自动转
 
 【网盘主页】：
 
-https://www.lanzous.com/u/yoyodadada
+https://yoyodadada.lanzous.com/u/yoyodadada
 
 【A】
 
-APKPure：https://www.lanzous.com/b688550
+APKPure：https://yoyodadada.lanzous.com/b07psq9a
 
-爱奇艺：https://www.lanzous.com/b688588
+爱奇艺：https://yoyodadada.lanzous.com/b07psrbi
 
-ADM：https://www.lanzous.com/b688921
+ADM：https://yoyodadada.lanzous.com/b07pt0kb
 
-【停更】AirPin-TV版：https://www.lanzous.com/b688992
+【停更】AirPin-TV版：https://yoyodadada.lanzous.com/b07pt2jc
 
-爱奇艺极速版：https://www.lanzous.com/b01ay6tbc
+爱奇艺极速版：https://yoyodadada.lanzous.com/b01ay6tbc
 
 【B】
 
-百度网盘：https://www.lanzous.com/b688523
+百度网盘：https://yoyodadada.lanzous.com/b07pspid
 
-哔哩哔哩：https://www.lanzous.com/b688539
+哔哩哔哩：https://yoyodadada.lanzous.com/b07pspyj
 
-【停更】宝贝听听：https://www.lanzous.com/b688584
+【停更】宝贝听听：https://yoyodadada.lanzous.com/b07psr7e
 
-贝瓦儿歌：https://www.lanzous.com/b688585
+贝瓦儿歌：https://yoyodadada.lanzous.com/b07psr8f
 
-【停更】白鲸TV-TV版：https://www.lanzous.com/b688989
+【停更】白鲸TV-TV版：https://yoyodadada.lanzous.com/b07pt2gj
 
-贝瓦儿歌-TV版：https://www.lanzous.com/b688990
+贝瓦儿歌-TV版：https://yoyodadada.lanzous.com/b07pt2ha
 
-【停更】暴风影音-TV版：https://www.lanzous.com/b689909
+【停更】暴风影音-TV版：https://yoyodadada.lanzous.com/b07pts0j
 
-【停更】暴风影音-PC版：https://www.lanzous.com/b691711
+【停更】暴风影音-PC版：https://yoyodadada.lanzous.com/b07pv62b
 
-哔哩哔哩-TV版：https://www.lanzous.com/b716055
+哔哩哔哩-TV版：https://yoyodadada.lanzous.com/b07qdyaf
 
-百度地图：https://www.lanzous.com/b909761
+百度地图：https://yoyodadada.lanzous.com/b07ujf0b
 
 【C】
 
-Calc.Business：https://www.lanzous.com/b688575
+Calc.Business：https://yoyodadada.lanzous.com/b07psqyf
 
-CIBN聚精彩-TV版：https://www.lanzous.com/b688995
+CIBN聚精彩-TV版：https://yoyodadada.lanzous.com/b07pt2mf
 
-橙色直播-TV版：https://www.lanzous.com/b688998
+橙色直播-TV版：https://yoyodadada.lanzous.com/b07pt2pi
 
-CAD看图王：https://www.lanzous.com/b689947
+CAD看图王：https://yoyodadada.lanzous.com/b07ptt2h
 
-【停更】CGI-PC版：https://www.lanzous.com/b691724
+【停更】CGI-PC版：https://yoyodadada.lanzous.com/b07pv6fe
 
-【停更】CCleaner-PC版：https://www.lanzous.com/b691727
+【停更】CCleaner-PC版：https://yoyodadada.lanzous.com/b07pv6ih
 
-【停更】CAD快速看图-PC版：https://www.lanzous.com/b691728
+【停更】CAD快速看图-PC版：https://yoyodadada.lanzous.com/b07pv6ji
 
-【停更】磁力猫：https://www.lanzous.com/b693302
+【停更】磁力猫：https://yoyodadada.lanzous.com/b07pwe9c
 
-CIBN酷喵影视-TV版：https://www.lanzous.com/b01b01k6f
+CIBN酷喵影视-TV版：https://yoyodadada.lanzous.com/b01b01k6f
 
 【D】
 
-【停更】电视猫-TV版：https://www.lanzous.com/b688986
+【停更】电视猫-TV版：https://yoyodadada.lanzous.com/b07pt2dg
 
-【停更】电影天堂-TV版：https://www.lanzous.com/b688987
+【停更】电影天堂-TV版：https://yoyodadada.lanzous.com/b07pt2eh
 
-电视家-TV版：https://www.lanzous.com/b719500
+电视家-TV版：https://yoyodadada.lanzous.com/b07qglza
 
 【E】
 
-【停更】儿歌多多：https://www.lanzous.com/b688533
+【停更】儿歌多多：https://yoyodadada.lanzous.com/b07pspsd
 
-Everything-PC版：https://www.lanzous.com/b01b8a84d
+Everything-PC版：https://yoyodadada.lanzous.com/b01b8a84d
 
 【F】
 
-【停更】Fancast：https://www.lanzous.com/b688538
+【停更】Fancast：https://yoyodadada.lanzous.com/b07pspxi
 
 【G】
 
-高德地图：https://www.lanzous.com/b688564
+高德地图：https://yoyodadada.lanzous.com/b07psqne
 
 【H】
 
