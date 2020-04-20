@@ -108,45 +108,45 @@ Everything-PC版：https://yoyodadada.lanzous.com/b01b8a84d
 
 【H】
 
-海星模拟器：https://www.lanzous.com/b688530
+海星模拟器：https://yoyodadada.lanzous.com/b07psppa
 
-【停更】HiPER.Calc：https://www.lanzous.com/b688570
+【停更】HiPER.Calc：https://yoyodadada.lanzous.com/b07psqta
 
-【停更】HashTab-PC版：https://www.lanzous.com/b691720
+【停更】HashTab-PC版：https://yoyodadada.lanzous.com/b07pv6ba
 
-【停更】HDP直播-TV版：https://www.lanzous.com/b716073
+【停更】HDP直播-TV版：https://yoyodadada.lanzous.com/b07qdysd
 
-【停更】海阔：https://www.lanzous.com/b861451
+【停更】海阔：https://yoyodadada.lanzous.com/b07ti52b
 
-红椒影视：https://www.lanzous.com/b01bamkje
+红椒影视：https://yoyodadada.lanzous.com/b01bamkje
 
 【I】
 
-【停更】Instagram：https://www.lanzous.com/b688494
+【停更】Instagram：https://yoyodadada.lanzous.com/b07psope
 
-【停更】IPTV：https://www.lanzous.com/b688529
+【停更】IPTV：https://yoyodadada.lanzous.com/b07pspoj
 
-IDM：https://www.lanzous.com/b704974
+IDM：https://yoyodadada.lanzous.com/b07q5ehe
 
-InstaMod：https://www.lanzous.com/b778932
+InstaMod：https://yoyodadada.lanzous.com/b07rqgvc
 
 【J】
 
-今日头条：https://www.lanzous.com/b688520
+今日头条：https://yoyodadada.lanzous.com/b07pspfa
 
-【停更】鲸鱼TV-TV版：https://www.lanzous.com/b716071
+【停更】鲸鱼TV-TV版：https://yoyodadada.lanzous.com/b07qdyqb
 
-京东：https://www.lanzous.com/b01ayf0ub
+京东：https://yoyodadada.lanzous.com/b01ayf0ub
 
 【K】
 
-【停更】快点投屏：https://www.lanzous.com/b688567
+【停更】快点投屏：https://yoyodadada.lanzous.com/b07psqqh
 
-快图浏览：https://www.lanzous.com/b688935
+快图浏览：https://yoyodadada.lanzous.com/b07pt0yf
 
-酷我音乐：https://www.lanzous.com/b789326
+酷我音乐：https://yoyodadada.lanzous.com/b07ryhlg
 
-【停更】酷我音乐-PC版：https://www.lanzous.com/b01ay4hkh
+【停更】酷我音乐-PC版：https://yoyodadada.lanzous.com/b01ay4hkh
 
 【L】
 
