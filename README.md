@@ -150,55 +150,55 @@ InstaMod：https://yoyodadada.lanzous.com/b07rqgvc
 
 【L】
 
-乐播：https://www.lanzous.com/b688552
+乐播：https://yoyodadada.lanzous.com/b07psqbc
 
-猎豹清理大师精简版：https://www.lanzous.com/b688933
+猎豹清理大师精简版：https://yoyodadada.lanzous.com/b07pt0wd
 
-【停更】猎豹清理大师-TV版：https://www.lanzous.com/b689929
+【停更】猎豹清理大师-TV版：https://yoyodadada.lanzous.com/b07ptskj
 
 【M】
 
-美剧鸟：https://www.lanzous.com/b688528
+美剧鸟：https://yoyodadada.lanzous.com/b07pspni
 
-芒果TV：https://www.lanzous.com/b688544
+芒果TV：https://yoyodadada.lanzous.com/b07psq3e
 
-MX.Player：https://www.lanzous.com/b688551
+MX.Player.Pro：https://yoyodadada.lanzous.com/b07psqab
 
-【停更】MUJI.to.Sleep：https://www.lanzous.com/b688583
+【停更】MUJI.to.Sleep：https://yoyodadada.lanzous.com/b07psr6d
 
-【停更】美食杰：https://www.lanzous.com/b688586
+【停更】美食杰：https://yoyodadada.lanzous.com/b07psr9g
 
-【停更】microG：https://www.lanzous.com/b688670
+【停更】microG：https://yoyodadada.lanzous.com/b07pstla
 
-美柚：https://www.lanzous.com/b688934
+美柚：https://yoyodadada.lanzous.com/b07pt0xe
 
-【停更】魔力视频-TV版：https://www.lanzous.com/b688996
+【停更】魔力视频-TV版：https://yoyodadada.lanzous.com/b07pt2ng
 
-芒果TV-TV版：https://www.lanzous.com/b01b01k8h
+芒果TV-TV版：https://yoyodadada.lanzous.com/b01b01k8h
 
 【N】
 
-南瓜影视：https://www.lanzous.com/b977204
+南瓜影视：https://yoyodadada.lanzous.com/b07vzgfe
 
-南瓜美剧：https://www.lanzous.com/b01azoofa
+南瓜美剧：https://yoyodadada.lanzous.com/b01azoofa
 
 【P】
 
-【停更】葡萄影视：https://www.lanzous.com/b688517
+【停更】葡萄影视：https://yoyodadada.lanzous.com/b07pspch
 
-【停更】PrintHand：https://www.lanzous.com/b688537
+【停更】PrintHand：https://yoyodadada.lanzous.com/b07pspwh
 
-【停更】PrintShare：https://www.lanzous.com/b688543
+【停更】PrintShare：https://yoyodadada.lanzous.com/b07psq2d
 
-PanDownload：https://www.lanzous.com/b688553
+【停更】PanDownload：https://yoyodadada.lanzous.com/b07psqcd
 
-PowerClean：https://www.lanzous.com/b688932
+PowerClean：https://yoyodadada.lanzous.com/b07pt0vc
 
-【停更】Photoshop-PC版：https://www.lanzous.com/b691716
+【停更】Photoshop-PC版：https://yoyodadada.lanzous.com/b07pv67g
 
-【停更】PanDownload-PC版：https://www.lanzous.com/b691718
+【停更】PanDownload-PC版：https://yoyodadada.lanzous.com/b07pv69i
 
-【停更】PotPlayer-PC版：https://www.lanzous.com/b782475
+【停更】PotPlayer-PC版：https://yoyodadada.lanzous.com/b07rt7af
 
 【Q】
 
