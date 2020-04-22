@@ -244,63 +244,63 @@ SD.Maid：https://yoyodadada.lanzous.com/b07pt0fg
 
 【T】
 
-腾讯视频：https://www.lanzous.com/b688495
+腾讯视频：https://yoyodadada.lanzous.com/b07psoqf
 
-腾讯视频极速版：https://www.lanzous.com/b688554
+腾讯视频极速版：https://yoyodadada.lanzous.com/b07psqde
 
-【停更】Telegram：https://www.lanzous.com/b688559
+【停更】Telegram：https://yoyodadada.lanzous.com/b07psqij
 
-淘宝：https://www.lanzous.com/b688595
+淘宝：https://yoyodadada.lanzous.com/b07psrif
 
-【停更】太极：https://www.lanzous.com/b688925
+【停更】太极：https://yoyodadada.lanzous.com/b07pt0of
 
-Tim：https://www.lanzous.com/b689917
+Tim：https://yoyodadada.lanzous.com/b07pts8h
 
-【停更】tTorrent.Pro：https://www.lanzous.com/b689942
+【停更】tTorrent.Pro：https://yoyodadada.lanzous.com/b07ptsxc
 
-Tim-PC版：https://www.lanzous.com/b01ay6ufc
+Tim-PC版：https://yoyodadada.lanzous.com/b01ay6ufc
 
-腾讯视频-PC版：https://www.lanzous.com/b01b1441i
+腾讯视频-PC版：https://yoyodadada.lanzous.com/b01b1441i
 
 【U】
 
-【停更】UnblockMusic：https://www.lanzous.com/b01aya7ad
+【停更】UnblockMusic：https://yoyodadada.lanzous.com/b01aya7ad
 
 【V】
 
-VSCO：https://www.lanzous.com/b688548
+VSCO：https://yoyodadada.lanzous.com/b07psq7i
 
-【停更】ViPER4Android.FX：https://www.lanzous.com/b716067
+【停更】ViPER4Android.FX：https://yoyodadada.lanzous.com/b07qdymh
 
-【停更】Village：https://www.lanzous.com/b818487
+【停更】Village：https://yoyodadada.lanzous.com/b07skzmh
 
 【W】
 
-【停更】wifi万能钥匙：https://www.lanzous.com/b688519
+【停更】wifi万能钥匙：https://yoyodadada.lanzous.com/b07pspej
 
-【停更】网易公开课：https://www.lanzous.com/b688522
+【停更】网易公开课：https://yoyodadada.lanzous.com/b07psphc
 
-WPS：https://www.lanzous.com/b688535
+WPS：https://yoyodadada.lanzous.com/b07pspuf
 
-【停更】完美视频大全：https://www.lanzous.com/b688542
+【停更】完美视频大全：https://yoyodadada.lanzous.com/b07psq1c
 
-网易云音乐：https://www.lanzous.com/b688561
+网易云音乐：https://yoyodadada.lanzous.com/b07psqkb
 
-【停更】悟饭游戏厅：https://www.lanzous.com/b688576
+【停更】悟饭游戏厅：https://yoyodadada.lanzous.com/b07psqzg
 
-【停更】完美视频大全-TV版：https://www.lanzous.com/b688983
+【停更】完美视频大全-TV版：https://yoyodadada.lanzous.com/b07pt2ad
 
-微博国际版：https://www.lanzous.com/b694814
+微博国际版：https://yoyodadada.lanzous.com/b07pxk9e
 
-【停更】微软常用运行库合集-PC版：https://www.lanzous.com/b695823
+【停更】微软常用运行库合集-PC版：https://yoyodadada.lanzous.com/b07pycad
 
-【停更】微软.NET.Framework-PC版：https://www.lanzous.com/b695824
+【停更】微软.NET.Framework-PC版：https://yoyodadada.lanzous.com/b07pycbe
 
-【停更】微软DirectX9.0c最终用户运行库-PC版：https://www.lanzous.com/b695826
+【停更】微软DirectX9.0c最终用户运行库-PC版：https://yoyodadada.lanzous.com/b07pycdg
 
-【停更】我的听书：https://www.lanzous.com/b01b34a7c
+【停更】我的听书：https://yoyodadada.lanzous.com/b01b34a7c
 
-微信-PC版：https://www.lanzous.com/b01ban6ob
+微信-PC版：https://yoyodadada.lanzous.com/b01ban6ob
 
 【X】
 
