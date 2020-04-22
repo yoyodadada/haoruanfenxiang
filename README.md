@@ -202,45 +202,45 @@ PowerClean：https://yoyodadada.lanzous.com/b07pt0vc
 
 【Q】
 
-QQ音乐：https://www.lanzous.com/b688580
+QQ音乐：https://yoyodadada.lanzous.com/b07psr3a
 
-蜻蜓FM：https://www.lanzous.com/b688930
+蜻蜓FM：https://yoyodadada.lanzous.com/b07pt0ta
 
-【停更】QQ轻聊版：https://www.lanzous.com/b689904
+【停更】QQ轻聊版：https://yoyodadada.lanzous.com/b07ptrve
 
-QQ音乐-PC版：https://www.lanzous.com/b691712
+QQ音乐-PC版：https://yoyodadada.lanzous.com/b07pv63c
 
-【停更】QQ轻聊版-PC版：https://www.lanzous.com/b691714
+【停更】QQ轻聊版-PC版：https://yoyodadada.lanzous.com/b07pv65e
 
-QQ：https://www.lanzous.com/b01b6ay1e
+QQ：https://yoyodadada.lanzous.com/b01b6ay1e
 
-QQ-PC版：https://www.lanzous.com/b01b7fkvg
+QQ-PC版：https://yoyodadada.lanzous.com/b01b7fkvg
 
 【R】
 
-【停更】日期计算器-PC版：https://www.lanzous.com/b691709
+【停更】日期计算器-PC版：https://yoyodadada.lanzous.com/b07pv60j
 
-【停更】rufus-PC版：https://www.lanzous.com/b787693
+【停更】rufus-PC版：https://yoyodadada.lanzous.com/b07rx88d
 
 【S】
 
-SpeedTest：https://www.lanzous.com/b688547
+SpeedTest：https://yoyodadada.lanzous.com/b07psq6h
 
-搜狗输入法：https://www.lanzous.com/b688598
+搜狗输入法：https://yoyodadada.lanzous.com/b07psrli
 
-SD.Maid：https://www.lanzous.com/b688916
+SD.Maid：https://yoyodadada.lanzous.com/b07pt0fg
 
-扫描全能王：https://www.lanzous.com/b688937
+扫描全能王：https://yoyodadada.lanzous.com/b07pt10h
 
-【停更】搜狗输入法-PC版：https://www.lanzous.com/b691706
+【停更】搜狗输入法-PC版：https://yoyodadada.lanzous.com/b07pv5xg
 
-【停更】SpeedPan-PC版：https://www.lanzous.com/b712804
+【停更】SpeedPan-PC版：https://yoyodadada.lanzous.com/b07qbfze
 
-思维导图：https://www.lanzous.com/b716079
+思维导图：https://yoyodadada.lanzous.com/b07qdyyj
 
-水印相机：https://www.lanzous.com/b01b0w34h
+水印相机：https://yoyodadada.lanzous.com/b01b0w34h
 
-搜书大师：https://www.lanzous.com/b01b8a87g
+搜书大师：https://yoyodadada.lanzous.com/b01b8a87g
 
 【T】
 
