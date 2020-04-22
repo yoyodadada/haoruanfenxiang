@@ -304,58 +304,60 @@ WPS：https://yoyodadada.lanzous.com/b07pspuf
 
 【X】
 
-【停更】香哈菜谱：https://www.lanzous.com/b688499
+【停更】香哈菜谱：https://yoyodadada.lanzous.com/b07psouj
 
-下厨房：https://www.lanzous.com/b688555
+下厨房：https://yoyodadada.lanzous.com/b07psqef
 
-【停更】XMind：https://www.lanzous.com/b688571
+【停更】XMind：https://yoyodadada.lanzous.com/b07psqub
 
-X.Plore：https://www.lanzous.com/b688918
+X.Plore：https://yoyodadada.lanzous.com/b07pt0hi
 
-【停更】新方圆影视：https://www.lanzous.com/b688922
+【停更】新方圆影视：https://yoyodadada.lanzous.com/b07pt0lc
 
-【停更】星集视频-TV版：https://www.lanzous.com/b688994
+【停更】星集视频-TV版：https://yoyodadada.lanzous.com/b07pt2le
 
-【停更】迅雷：https://www.lanzous.com/b689897
+【停更】迅雷：https://yoyodadada.lanzous.com/b07ptroh
 
-【停更】小磁力BT：https://www.lanzous.com/b689937
+【停更】小磁力BT：https://yoyodadada.lanzous.com/b07ptssh
 
-迅雷-PC版：https://www.lanzous.com/b691700
+迅雷-PC版：https://yoyodadada.lanzous.com/b07pv5ra
 
-【停更】新方圆TV-TV版：https://www.lanzous.com/b704979
+【停更】新方圆TV-TV版：https://yoyodadada.lanzous.com/b07q5emj
 
-喜马拉雅FM：https://www.lanzous.com/b01ayf0wd
+喜马拉雅FM：https://yoyodadada.lanzous.com/b01ayf0wd
 
-迅游手游加速器：https://www.lanzous.com/b01b1444b
+迅游手游加速器：https://yoyodadada.lanzous.com/b01b1444b
+
+星雨视频：https://yoyodadada.lanzous.com/b01bc2zpc
 
 【Y】
 
-影迷大院：https://www.lanzous.com/b688526
+【停更】影迷大院：https://yoyodadada.lanzous.com/b07psplg
 
-YouTube.Vanced：https://www.lanzous.com/b688572
+YouTube.Vanced：https://yoyodadada.lanzous.com/b07psqvc
 
-优酷：https://www.lanzous.com/b688591
+优酷：https://yoyodadada.lanzous.com/b07psreb
 
-【停更】影视大全：https://www.lanzous.com/b688596
+【停更】影视大全：https://yoyodadada.lanzous.com/b07psrjg
 
-【停更】音量增强器：https://www.lanzous.com/b688919
+【停更】音量增强器：https://yoyodadada.lanzous.com/b07pt0ij
 
-【停更】云村清洁工：https://www.lanzous.com/b688920
+【停更】云村清洁工：https://yoyodadada.lanzous.com/b07pt0ja
 
-云视听极光-TV版：https://www.lanzous.com/b688993
+云视听极光-TV版：https://yoyodadada.lanzous.com/b07pt2kd
 
-云视听悦厅TV-TV版：https://www.lanzous.com/b01b1ntde
+云视听悦厅TV-TV版：https://yoyodadada.lanzous.com/b01b1ntde
 
-银河奇异果-TV版：https://www.lanzous.com/b01b27qha
+银河奇异果-TV版：https://yoyodadada.lanzous.com/b01b27qha
 
-叶子TV-TV版：https://www.lanzous.com/b01b9ps0f
+叶子TV-TV版：https://yoyodadada.lanzous.com/b01b9ps0f
 
 【Z】
 
-支付宝：https://www.lanzous.com/b688599
+支付宝：https://yoyodadada.lanzous.com/b07psrmj
 
-知乎：https://www.lanzous.com/b688601
+知乎：https://yoyodadada.lanzous.com/b07psrob
 
 【未归类】（一些未归类的比较好用的软件，不定时更新，不追新）
 
-https://www.lanzous.com/b01b01h9a
+https://yoyodadada.lanzous.com/b01b01h9a
