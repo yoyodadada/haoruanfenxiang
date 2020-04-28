@@ -96,7 +96,7 @@ CIBN酷喵影视-TV版：https://yoyodadada.lanzous.com/b01b01k6f
 
 【E】
 
-【停更】儿歌多多：https://yoyodadada.lanzous.com/b07pspsd
+儿歌多多：https://yoyodadada.lanzous.com/b07pspsd
 
 Everything-PC版：https://yoyodadada.lanzous.com/b01b8a84d
 
@@ -122,7 +122,9 @@ Everything-PC版：https://yoyodadada.lanzous.com/b01b8a84d
 
 红椒影视：https://yoyodadada.lanzous.com/b01bamkje
 
-韩剧TV：https://yoyodadada.lanzous.com/b01bc30le
+韩剧TV（com.leku.hmsq）：https://yoyodadada.lanzous.com/b01bc30le
+
+韩剧TV（com.babycloud.hanju）：https://yoyodadada.lanzous.com/b01bcoped
 
 【I】
 
