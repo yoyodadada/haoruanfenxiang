@@ -74,7 +74,7 @@ CIBN聚精彩-TV版：https://yoyodadada.lanzous.com/b07pt2mf
 
 CAD看图王：https://yoyodadada.lanzous.com/b07ptt2h
 
-【停更】CGI-PC版：https://yoyodadada.lanzous.com/b07pv6fe
+CGI-PC版：https://yoyodadada.lanzous.com/b07pv6fe
 
 【停更】CCleaner-PC版：https://yoyodadada.lanzous.com/b07pv6ih
 
