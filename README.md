@@ -172,7 +172,7 @@ MX.Player.Pro：https://yoyodadada.lanzous.com/b07psqab
 
 【停更】MUJI.to.Sleep：https://yoyodadada.lanzous.com/b07psr6d
 
-【停更】美食杰：https://yoyodadada.lanzous.com/b07psr9g
+美食杰：https://yoyodadada.lanzous.com/b07psr9g
 
 【停更】microG：https://yoyodadada.lanzous.com/b07pstla
 
@@ -307,6 +307,8 @@ WPS：https://yoyodadada.lanzous.com/b07pspuf
 【停更】我的听书：https://yoyodadada.lanzous.com/b01b34a7c
 
 微信-PC版：https://yoyodadada.lanzous.com/b01ban6ob
+
+卧龙影视：https://yoyodadada.lanzous.com/b01bdfw2f
 
 【X】
 
