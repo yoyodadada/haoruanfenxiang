@@ -2,13 +2,13 @@
 
 ## 下载地址：
 
+注1：手机浏览器看不到软件列表的，点下面那个“View all of README.md”
+
 【网盘主页】（按更新倒序排列）：
 
 https://yoyodadada.lanzous.com/u/yoyodadada
 
 针对指定软件见下文【软件列表】
-
-注1：手机浏览器看不到软件列表的，点下面那个“View all of README.md”
 
 注2：本页发布的资源均为公开版，内部资源请加入Telegram频道或群组。
 
