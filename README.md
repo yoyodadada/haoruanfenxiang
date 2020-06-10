@@ -100,6 +100,8 @@ CIBN酷喵影视-TV版：https://yoyodadada.lanzous.com/b01b01k6f
 
 第一弹：https://yoyodadada.lanzous.com/b01bc30jc
 
+豆瓣：https://yoyodadada.lanzous.com/b01bh2tab
+
 【E】
 
 儿歌多多：https://yoyodadada.lanzous.com/b07pspsd
@@ -133,6 +135,8 @@ Everything-PC版：https://yoyodadada.lanzous.com/b01b8a84d
 韩剧TV（com.leku.hmsq）：https://yoyodadada.lanzous.com/b01bc30le
 
 韩剧TV（com.babycloud.hanju）：https://yoyodadada.lanzous.com/b01bcoped
+
+画廊：https://yoyodadada.lanzous.com/b01bh360j
 
 【I】
 
@@ -235,6 +239,8 @@ QQ-PC版：https://yoyodadada.lanzous.com/b01b7fkvg
 【停更】日期计算器-PC版：https://yoyodadada.lanzous.com/b07pv60j
 
 【停更】rufus-PC版：https://yoyodadada.lanzous.com/b07rx88d
+
+人人视频：https://yoyodadada.lanzous.com/b01bh2x6b
 
 【S】
 
