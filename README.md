@@ -126,7 +126,7 @@ Everything-PC版：https://yoyodadada.lanzous.com/b01b8a84d
 
 【停更】HashTab-PC版：https://yoyodadada.lanzous.com/b07pv6ba
 
-【停更】HDP直播-TV版：https://yoyodadada.lanzous.com/b07qdysd
+HDP直播-TV版：https://yoyodadada.lanzous.com/b07qdysd
 
 【停更】海阔：https://yoyodadada.lanzous.com/b07ti52b
 
