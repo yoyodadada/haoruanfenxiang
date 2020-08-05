@@ -82,7 +82,7 @@ CAD看图王：https://yoyodadada.lanzous.com/b07ptt2h
 
 CGI-PC版：https://yoyodadada.lanzous.com/b07pv6fe
 
-【停更】CCleaner-PC版：https://yoyodadada.lanzous.com/b07pv6ih
+CCleaner-PC版：https://yoyodadada.lanzous.com/b07pv6ih
 
 【停更】CAD快速看图-PC版：https://yoyodadada.lanzous.com/b07pv6ji
 
