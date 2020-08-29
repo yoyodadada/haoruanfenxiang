@@ -330,7 +330,7 @@ WPS：https://yoyodadada.lanzous.com/b07pspuf
 
 下厨房：https://yoyodadada.lanzous.com/b07psqef
 
-【停更】XMind：https://yoyodadada.lanzous.com/b07psqub
+XMind：https://yoyodadada.lanzous.com/b07psqub
 
 X.Plore：https://yoyodadada.lanzous.com/b07pt0hi
 
