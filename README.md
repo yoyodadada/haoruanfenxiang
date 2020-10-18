@@ -122,7 +122,7 @@ Everything-PC版：https://yoyodadada.lanzous.com/b01b8a84d
 
 海星模拟器：https://yoyodadada.lanzous.com/b07psppa
 
-【停更】HiPER.Calc：https://yoyodadada.lanzous.com/b07psqta
+HiPER.Calc：https://yoyodadada.lanzous.com/b07psqta
 
 【停更】HashTab-PC版：https://yoyodadada.lanzous.com/b07pv6ba
 
