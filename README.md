@@ -108,6 +108,8 @@ CIBN酷喵影视-TV版：https://yoyodadada.lanzous.com/b01b01k6f
 
 Everything-PC版：https://yoyodadada.lanzous.com/b01b8a84d
 
+2345看图王-PC版：https://yoyodadada.lanzoui.com/b01bsrbnc
+
 【F】
 
 【停更】Fancast：https://yoyodadada.lanzous.com/b07pspxi
