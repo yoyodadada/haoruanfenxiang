@@ -124,7 +124,7 @@ Everything-PC版：https://yoyodadada.lanzous.com/b01b8a84d
 
 海星模拟器：https://yoyodadada.lanzous.com/b07psppa
 
-HiPER.Calc：https://yoyodadada.lanzous.com/b07psqta
+HiPER.Calc（艾泰科学计算器）：https://yoyodadada.lanzous.com/b07psqta
 
 【停更】HashTab-PC版：https://yoyodadada.lanzous.com/b07pv6ba
 
