@@ -64,7 +64,7 @@ ADM：https://yoyodadada.lanzous.com/b07pt0kb
 
 【停更】暴风影音-TV版：https://yoyodadada.lanzous.com/b07pts0j
 
-【停更】暴风影音-PC版：https://yoyodadada.lanzous.com/b07pv62b
+暴风影音-PC版：https://yoyodadada.lanzous.com/b07pv62b
 
 哔哩哔哩-TV版：https://yoyodadada.lanzous.com/b07qdyaf
 
