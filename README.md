@@ -154,7 +154,7 @@ HDP直播-TV版：https://yoyodadada.lanzous.com/b07qdysd
 
 IDM：https://yoyodadada.lanzous.com/b07q5ehe
 
-InstaMod：https://yoyodadada.lanzous.com/b07rqgvc
+InstaMod（第三方Instagram）：https://yoyodadada.lanzous.com/b07rqgvc
 
 IT之家：https://yoyodadada.lanzoui.com/b01bwl4kf
 
