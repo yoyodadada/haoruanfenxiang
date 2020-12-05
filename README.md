@@ -210,7 +210,7 @@ MX.Player.Pro：https://yoyodadada.lanzous.com/b07psqab
 
 南瓜影视：https://yoyodadada.lanzous.com/b07vzgfe
 
-南瓜美剧：https://yoyodadada.lanzous.com/b01azoofa
+【停更】南瓜美剧：https://yoyodadada.lanzous.com/b01azoofa
 
 【P】
 
