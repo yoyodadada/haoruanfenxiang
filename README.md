@@ -417,10 +417,6 @@ https://yoyodadada.lanzoui.com/b01bwkyod
 
 https://yoyodadada.lanzoui.com/b01bwkyqf
 
-【CIBN系列盒子应用】
+【CIBN系列、泰捷盒子应用】
 
 https://yoyodadada.lanzoui.com/b01bwl23g
-
-【泰捷影视、完美视频盒子应用】
-
-https://yoyodadada.lanzoui.com/b01bwl2sb
