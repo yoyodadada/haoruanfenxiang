@@ -388,6 +388,23 @@ YouTube.Vanced：https://yoyodadada.lanzous.com/b07psqvc
 
 知乎：https://yoyodadada.lanzous.com/b07psrob
 
-【未归类】（一些未归类的比较好用的软件，不定时更新，不追新）
+
+【未归类&合集】（一些未按应用名称首字母归类的比较好用的软件，不定时更新，不追新）
 
 https://yoyodadada.lanzous.com/b01b01h9a
+
+【电商平台抢购软件】（非最新）
+
+https://yoyodadada.lanzoui.com/b01b77boh
+
+【口罩相关标准】（针对2019年新冠疫情）
+
+https://yoyodadada.lanzoui.com/b01b77bdg
+
+【硬件检测类】
+
+https://yoyodadada.lanzoui.com/b01bwkyod
+
+【驱动管理类】
+
+https://yoyodadada.lanzoui.com/b01bwkyqf
