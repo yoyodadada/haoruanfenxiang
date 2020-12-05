@@ -70,7 +70,7 @@ ADM：https://yoyodadada.lanzous.com/b07pt0kb
 
 暴风影音-PC版：https://yoyodadada.lanzous.com/b07pv62b
 
-哔哩哔哩-TV版：https://yoyodadada.lanzous.com/b07qdyaf
+哔哩哔哩-TV版（第三方）：https://yoyodadada.lanzous.com/b07qdyaf
 
 百度地图：https://yoyodadada.lanzous.com/b07ujf0b
 
