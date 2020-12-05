@@ -421,6 +421,6 @@ https://yoyodadada.lanzoui.com/b01bwkyqf
 
 https://yoyodadada.lanzoui.com/b01bwl23g
 
-【云视听、泰捷等盒子应用】
+【泰捷影视、完美视频盒子应用】
 
 https://yoyodadada.lanzoui.com/b01bwl2sb
