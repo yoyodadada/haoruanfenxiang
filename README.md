@@ -386,7 +386,7 @@ YouTube.Vanced：https://yoyodadada.lanzous.com/b07psqvc
 
 叶子TV-TV版：https://yoyodadada.lanzous.com/b01b9ps0f
 
-云视听小电视-TV版：https://yoyodadada.lanzous.com/b01bh3pgj
+云视听小电视-TV版（哔哩哔哩官方TV版）：https://yoyodadada.lanzous.com/b01bh3pgj
 
 有道云笔记：https://yoyodadada.lanzoui.com/b01bwl3cb
 
