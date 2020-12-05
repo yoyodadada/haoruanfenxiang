@@ -78,7 +78,7 @@ ADM：https://yoyodadada.lanzous.com/b07pt0kb
 
 【C】
 
-Calc.Business：https://yoyodadada.lanzous.com/b07psqyf
+Calc.Business（卡西欧科学计算器）：https://yoyodadada.lanzous.com/b07psqyf
 
 CIBN聚精彩-TV版：https://yoyodadada.lanzous.com/b07pt2mf
 
