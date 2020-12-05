@@ -170,7 +170,7 @@ IT之家：https://yoyodadada.lanzoui.com/b01bwl4kf
 
 【停更】快点投屏：https://yoyodadada.lanzous.com/b07psqqh
 
-快图浏览：https://yoyodadada.lanzous.com/b07pt0yf
+【停更】快图浏览：https://yoyodadada.lanzous.com/b07pt0yf
 
 酷我音乐：https://yoyodadada.lanzous.com/b07ryhlg
 
