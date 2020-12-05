@@ -74,6 +74,8 @@ ADM：https://yoyodadada.lanzous.com/b07pt0kb
 
 百度地图：https://yoyodadada.lanzous.com/b07ujf0b
 
+百度贴吧：https://yoyodadada.lanzoui.com/b01bwl3xc
+
 【C】
 
 Calc.Business：https://yoyodadada.lanzous.com/b07psqyf
@@ -154,6 +156,8 @@ IDM：https://yoyodadada.lanzous.com/b07q5ehe
 
 InstaMod：https://yoyodadada.lanzous.com/b07rqgvc
 
+IT之家：https://yoyodadada.lanzoui.com/b01bwl4kf
+
 【J】
 
 今日头条：https://yoyodadada.lanzous.com/b07pspfa
@@ -199,6 +203,8 @@ MX.Player.Pro：https://yoyodadada.lanzous.com/b07psqab
 【停更】魔力视频-TV版：https://yoyodadada.lanzous.com/b07pt2ng
 
 芒果TV-TV版：https://yoyodadada.lanzous.com/b01b01k8h
+
+美图秀秀：https://yoyodadada.lanzoui.com/b01bwl4ch
 
 【N】
 
@@ -382,6 +388,8 @@ YouTube.Vanced：https://yoyodadada.lanzous.com/b07psqvc
 
 云视听小电视-TV版：https://yoyodadada.lanzous.com/b01bh3pgj
 
+有道云笔记：https://yoyodadada.lanzoui.com/b01bwl3cb
+
 【Z】
 
 支付宝：https://yoyodadada.lanzous.com/b07psrmj
@@ -408,3 +416,11 @@ https://yoyodadada.lanzoui.com/b01bwkyod
 【驱动管理类】
 
 https://yoyodadada.lanzoui.com/b01bwkyqf
+
+【CIBN系列盒子应用】
+
+https://yoyodadada.lanzoui.com/b01bwl23g
+
+【云视听、泰捷等盒子应用】
+
+https://yoyodadada.lanzoui.com/b01bwl2sb
