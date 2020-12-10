@@ -358,7 +358,7 @@ X.Plore：https://yoyodadada.lanzous.com/b07pt0hi
 
 【停更】新方圆TV-TV版：https://yoyodadada.lanzous.com/b07q5emj
 
-喜马拉雅FM：https://yoyodadada.lanzous.com/b01ayf0wd
+喜马拉雅：https://yoyodadada.lanzous.com/b01ayf0wd
 
 迅游手游加速器：https://yoyodadada.lanzous.com/b01b1444b
 
