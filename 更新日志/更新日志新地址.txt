@@ -1,5 +1,0 @@
-为了方便查询，变更新的更新日志地址为：
-
-https://github.com/yoyodadada/haoruanfenxiang/tree/master/UpdateLog
-
-新的地址根据年——月进行归纳。
