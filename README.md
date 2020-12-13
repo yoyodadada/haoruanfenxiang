@@ -398,6 +398,7 @@ YouTube.Vanced：https://yoyodadada.lanzous.com/b07psqvc
 
 知乎：https://yoyodadada.lanzous.com/b07psrob
 
+资源猫：https://yoyodadada.lanzoui.com/b01bxc2yj
 
 【未归类、合集】（一些未按应用名称首字母归类的比较好用的软件）
 
