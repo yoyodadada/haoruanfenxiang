@@ -48,7 +48,7 @@ APKPure：https://yoyodadada.lanzous.com/b07psq9a
 
 ADM：https://yoyodadada.lanzous.com/b07pt0kb
 
-【停更】AirPin-TV版：https://yoyodadada.lanzous.com/b07pt2jc
+AirPin-TV版：https://yoyodadada.lanzous.com/b07pt2jc
 
 爱奇艺极速版：https://yoyodadada.lanzous.com/b01ay6tbc
 
@@ -58,15 +58,15 @@ ADM：https://yoyodadada.lanzous.com/b07pt0kb
 
 哔哩哔哩：https://yoyodadada.lanzous.com/b07pspyj
 
-【停更】宝贝听听：https://yoyodadada.lanzous.com/b07psr7e
+宝贝听听：https://yoyodadada.lanzous.com/b07psr7e
 
 贝瓦儿歌：https://yoyodadada.lanzous.com/b07psr8f
 
-【停更】白鲸TV-TV版：https://yoyodadada.lanzous.com/b07pt2gj
+白鲸TV-TV版：https://yoyodadada.lanzous.com/b07pt2gj
 
 贝瓦儿歌-TV版：https://yoyodadada.lanzous.com/b07pt2ha
 
-【停更】暴风影音-TV版：https://yoyodadada.lanzous.com/b07pts0j
+暴风影音-TV版：https://yoyodadada.lanzous.com/b07pts0j
 
 暴风影音-PC版：https://yoyodadada.lanzous.com/b07pv62b
 
@@ -86,21 +86,21 @@ CIBN聚精彩-TV版：https://yoyodadada.lanzous.com/b07pt2mf
 
 CAD看图王：https://yoyodadada.lanzous.com/b07ptt2h
 
-【停更】CGI-PC版（系统镜像恢复工具）：https://yoyodadada.lanzous.com/b07pv6fe
+CGI-PC版（系统镜像恢复工具）：https://yoyodadada.lanzous.com/b07pv6fe
 
 CCleaner-PC版：https://yoyodadada.lanzous.com/b07pv6ih
 
-【停更】CAD快速看图-PC版：https://yoyodadada.lanzous.com/b07pv6ji
+CAD快速看图-PC版：https://yoyodadada.lanzous.com/b07pv6ji
 
-【停更】磁力猫：https://yoyodadada.lanzous.com/b07pwe9c
+磁力猫：https://yoyodadada.lanzous.com/b07pwe9c
 
 CIBN酷喵影视-TV版：https://yoyodadada.lanzous.com/b01b01k6f
 
 【D】
 
-【停更】电视猫-TV版：https://yoyodadada.lanzous.com/b07pt2dg
+电视猫-TV版：https://yoyodadada.lanzous.com/b07pt2dg
 
-【停更】电影天堂-TV版：https://yoyodadada.lanzous.com/b07pt2eh
+电影天堂-TV版：https://yoyodadada.lanzous.com/b07pt2eh
 
 电视家-TV版：https://yoyodadada.lanzous.com/b07qglza
 
@@ -118,9 +118,9 @@ Everything-PC版：https://yoyodadada.lanzous.com/b01b8a84d
 
 【F】
 
-【停更】Fancast：https://yoyodadada.lanzous.com/b07pspxi
+Fancast：https://yoyodadada.lanzous.com/b07pspxi
 
-【停更】番茄影视：https://yoyodadada.lanzous.com/b01bebx9a
+番茄影视：https://yoyodadada.lanzous.com/b01bebx9a
 
 【G】
 
@@ -132,11 +132,11 @@ Everything-PC版：https://yoyodadada.lanzous.com/b01b8a84d
 
 HiPER.Calc（艾泰科学计算器）：https://yoyodadada.lanzous.com/b07psqta
 
-【停更】HashTab-PC版：https://yoyodadada.lanzous.com/b07pv6ba
+HashTab-PC版：https://yoyodadada.lanzous.com/b07pv6ba
 
 HDP直播-TV版：https://yoyodadada.lanzous.com/b07qdysd
 
-【停更】海阔：https://yoyodadada.lanzous.com/b07ti52b
+海阔：https://yoyodadada.lanzous.com/b07ti52b
 
 红椒影视：https://yoyodadada.lanzous.com/b01bamkje
 
@@ -148,9 +148,9 @@ HDP直播-TV版：https://yoyodadada.lanzous.com/b07qdysd
 
 【I】
 
-【停更】Instagram：https://yoyodadada.lanzous.com/b07psope
+Instagram：https://yoyodadada.lanzous.com/b07psope
 
-【停更】IPTV：https://yoyodadada.lanzous.com/b07pspoj
+IPTV：https://yoyodadada.lanzous.com/b07pspoj
 
 IDM：https://yoyodadada.lanzous.com/b07q5ehe
 
@@ -162,19 +162,19 @@ IT之家：https://yoyodadada.lanzoui.com/b01bwl4kf
 
 今日头条：https://yoyodadada.lanzous.com/b07pspfa
 
-【停更】鲸鱼TV-TV版：https://yoyodadada.lanzous.com/b07qdyqb
+鲸鱼TV-TV版：https://yoyodadada.lanzous.com/b07qdyqb
 
 京东：https://yoyodadada.lanzous.com/b01ayf0ub
 
 【K】
 
-【停更】快点投屏：https://yoyodadada.lanzous.com/b07psqqh
+快点投屏：https://yoyodadada.lanzous.com/b07psqqh
 
-【停更】快图浏览：https://yoyodadada.lanzous.com/b07pt0yf
+快图浏览：https://yoyodadada.lanzous.com/b07pt0yf
 
 酷我音乐：https://yoyodadada.lanzous.com/b07ryhlg
 
-【停更】酷我音乐-PC版：https://yoyodadada.lanzous.com/b01ay4hkh
+酷我音乐-PC版：https://yoyodadada.lanzous.com/b01ay4hkh
 
 【L】
 
@@ -182,7 +182,7 @@ IT之家：https://yoyodadada.lanzoui.com/b01bwl4kf
 
 猎豹清理大师精简版：https://yoyodadada.lanzous.com/b07pt0wd
 
-【停更】猎豹清理大师-TV版：https://yoyodadada.lanzous.com/b07ptskj
+猎豹清理大师-TV版：https://yoyodadada.lanzous.com/b07ptskj
 
 【M】
 
@@ -192,15 +192,15 @@ IT之家：https://yoyodadada.lanzoui.com/b01bwl4kf
 
 MX.Player.Pro：https://yoyodadada.lanzous.com/b07psqab
 
-【停更】MUJI.to.Sleep：https://yoyodadada.lanzous.com/b07psr6d
+MUJI.to.Sleep：https://yoyodadada.lanzous.com/b07psr6d
 
 美食杰：https://yoyodadada.lanzous.com/b07psr9g
 
-【停更】microG：https://yoyodadada.lanzous.com/b07pstla
+microG：https://yoyodadada.lanzous.com/b07pstla
 
 美柚：https://yoyodadada.lanzous.com/b07pt0xe
 
-【停更】魔力视频-TV版：https://yoyodadada.lanzous.com/b07pt2ng
+魔力视频-TV版：https://yoyodadada.lanzous.com/b07pt2ng
 
 芒果TV-TV版：https://yoyodadada.lanzous.com/b01b01k8h
 
@@ -210,25 +210,25 @@ MX.Player.Pro：https://yoyodadada.lanzous.com/b07psqab
 
 南瓜影视：https://yoyodadada.lanzous.com/b07vzgfe
 
-【停更】南瓜美剧：https://yoyodadada.lanzous.com/b01azoofa
+南瓜美剧：https://yoyodadada.lanzous.com/b01azoofa
 
 【P】
 
-【停更】葡萄影视：https://yoyodadada.lanzous.com/b07pspch
+葡萄影视：https://yoyodadada.lanzous.com/b07pspch
 
-【停更】PrintHand：https://yoyodadada.lanzous.com/b07pspwh
+PrintHand：https://yoyodadada.lanzous.com/b07pspwh
 
-【停更】PrintShare：https://yoyodadada.lanzous.com/b07psq2d
+PrintShare：https://yoyodadada.lanzous.com/b07psq2d
 
-【停更】PanDownload：https://yoyodadada.lanzous.com/b07psqcd
+PanDownload：https://yoyodadada.lanzous.com/b07psqcd
 
 PowerClean：https://yoyodadada.lanzous.com/b07pt0vc
 
-【停更】Photoshop-PC版：https://yoyodadada.lanzous.com/b07pv67g
+Photoshop-PC版：https://yoyodadada.lanzous.com/b07pv67g
 
-【停更】PanDownload-PC版：https://yoyodadada.lanzous.com/b07pv69i
+PanDownload-PC版：https://yoyodadada.lanzous.com/b07pv69i
 
-【停更】PotPlayer-PC版：https://yoyodadada.lanzous.com/b07rt7af
+PotPlayer-PC版：https://yoyodadada.lanzous.com/b07rt7af
 
 【Q】
 
@@ -236,11 +236,11 @@ QQ音乐：https://yoyodadada.lanzous.com/b07psr3a
 
 蜻蜓FM：https://yoyodadada.lanzous.com/b07pt0ta
 
-【停更】QQ轻聊版：https://yoyodadada.lanzous.com/b07ptrve
+QQ轻聊版：https://yoyodadada.lanzous.com/b07ptrve
 
 QQ音乐-PC版：https://yoyodadada.lanzous.com/b07pv63c
 
-【停更】QQ轻聊版-PC版：https://yoyodadada.lanzous.com/b07pv65e
+QQ轻聊版-PC版：https://yoyodadada.lanzous.com/b07pv65e
 
 QQ：https://yoyodadada.lanzous.com/b01b6ay1e
 
@@ -248,9 +248,9 @@ QQ-PC版：https://yoyodadada.lanzous.com/b01b7fkvg
 
 【R】
 
-【停更】日期计算器-PC版：https://yoyodadada.lanzous.com/b07pv60j
+日期计算器-PC版：https://yoyodadada.lanzous.com/b07pv60j
 
-【停更】rufus-PC版：https://yoyodadada.lanzous.com/b07rx88d
+rufus-PC版：https://yoyodadada.lanzous.com/b07rx88d
 
 人人视频：https://yoyodadada.lanzous.com/b01bh2x6b
 
@@ -264,9 +264,9 @@ SD.Maid：https://yoyodadada.lanzous.com/b07pt0fg
 
 扫描全能王：https://yoyodadada.lanzous.com/b07pt10h
 
-【停更】搜狗输入法-PC版：https://yoyodadada.lanzous.com/b07pv5xg
+搜狗输入法-PC版：https://yoyodadada.lanzous.com/b07pv5xg
 
-【停更】SpeedPan-PC版：https://yoyodadada.lanzous.com/b07qbfze
+SpeedPan-PC版：https://yoyodadada.lanzous.com/b07qbfze
 
 思维导图：https://yoyodadada.lanzous.com/b07qdyyj
 
@@ -280,15 +280,15 @@ SD.Maid：https://yoyodadada.lanzous.com/b07pt0fg
 
 腾讯视频极速版：https://yoyodadada.lanzous.com/b07psqde
 
-【停更】Telegram：https://yoyodadada.lanzous.com/b07psqij
+Telegram：https://yoyodadada.lanzous.com/b07psqij
 
 淘宝：https://yoyodadada.lanzous.com/b07psrif
 
-【停更】太极：https://yoyodadada.lanzous.com/b07pt0of
+太极：https://yoyodadada.lanzous.com/b07pt0of
 
 Tim：https://yoyodadada.lanzous.com/b07pts8h
 
-【停更】tTorrent.Pro：https://yoyodadada.lanzous.com/b07ptsxc
+tTorrent.Pro：https://yoyodadada.lanzous.com/b07ptsxc
 
 Tim-PC版：https://yoyodadada.lanzous.com/b01ay6ufc
 
@@ -296,41 +296,41 @@ Tim-PC版：https://yoyodadada.lanzous.com/b01ay6ufc
 
 【U】
 
-【停更】UnblockMusic：https://yoyodadada.lanzous.com/b01aya7ad
+UnblockMusic：https://yoyodadada.lanzous.com/b01aya7ad
 
 【V】
 
 VSCO：https://yoyodadada.lanzous.com/b07psq7i
 
-【停更】ViPER4Android.FX：https://yoyodadada.lanzous.com/b07qdymh
+ViPER4Android.FX：https://yoyodadada.lanzous.com/b07qdymh
 
-【停更】Village：https://yoyodadada.lanzous.com/b07skzmh
+Village：https://yoyodadada.lanzous.com/b07skzmh
 
 【W】
 
-【停更】wifi万能钥匙：https://yoyodadada.lanzous.com/b07pspej
+wifi万能钥匙：https://yoyodadada.lanzous.com/b07pspej
 
-【停更】网易公开课：https://yoyodadada.lanzous.com/b07psphc
+网易公开课：https://yoyodadada.lanzous.com/b07psphc
 
 WPS：https://yoyodadada.lanzous.com/b07pspuf
 
-【停更】完美视频大全：https://yoyodadada.lanzous.com/b07psq1c
+完美视频大全：https://yoyodadada.lanzous.com/b07psq1c
 
 网易云音乐：https://yoyodadada.lanzous.com/b07psqkb
 
-【停更】悟饭游戏厅：https://yoyodadada.lanzous.com/b07psqzg
+悟饭游戏厅：https://yoyodadada.lanzous.com/b07psqzg
 
-【停更】完美视频大全-TV版：https://yoyodadada.lanzous.com/b07pt2ad
+完美视频大全-TV版：https://yoyodadada.lanzous.com/b07pt2ad
 
 微博国际版：https://yoyodadada.lanzous.com/b07pxk9e
 
-【停更】微软常用运行库合集-PC版：https://yoyodadada.lanzous.com/b07pycad
+微软常用运行库合集-PC版：https://yoyodadada.lanzous.com/b07pycad
 
-【停更】微软.NET.Framework-PC版：https://yoyodadada.lanzous.com/b07pycbe
+微软.NET.Framework-PC版：https://yoyodadada.lanzous.com/b07pycbe
 
-【停更】微软DirectX9.0c最终用户运行库-PC版：https://yoyodadada.lanzous.com/b07pycdg
+微软DirectX9.0c最终用户运行库-PC版：https://yoyodadada.lanzous.com/b07pycdg
 
-【停更】我的听书：https://yoyodadada.lanzous.com/b01b34a7c
+我的听书：https://yoyodadada.lanzous.com/b01b34a7c
 
 微信-PC版：https://yoyodadada.lanzous.com/b01ban6ob
 
@@ -338,7 +338,7 @@ WPS：https://yoyodadada.lanzous.com/b07pspuf
 
 【X】
 
-【停更】香哈菜谱：https://yoyodadada.lanzous.com/b07psouj
+香哈菜谱：https://yoyodadada.lanzous.com/b07psouj
 
 下厨房：https://yoyodadada.lanzous.com/b07psqef
 
@@ -346,17 +346,17 @@ XMind：https://yoyodadada.lanzous.com/b07psqub
 
 X.Plore：https://yoyodadada.lanzous.com/b07pt0hi
 
-【停更】新方圆影视：https://yoyodadada.lanzous.com/b07pt0lc
+新方圆影视：https://yoyodadada.lanzous.com/b07pt0lc
 
-【停更】星集视频-TV版：https://yoyodadada.lanzous.com/b07pt2le
+星集视频-TV版：https://yoyodadada.lanzous.com/b07pt2le
 
-【停更】迅雷：https://yoyodadada.lanzous.com/b07ptroh
+迅雷：https://yoyodadada.lanzous.com/b07ptroh
 
-【停更】小磁力BT：https://yoyodadada.lanzous.com/b07ptssh
+小磁力BT：https://yoyodadada.lanzous.com/b07ptssh
 
 迅雷-PC版：https://yoyodadada.lanzous.com/b07pv5ra
 
-【停更】新方圆TV-TV版：https://yoyodadada.lanzous.com/b07q5emj
+新方圆TV-TV版：https://yoyodadada.lanzous.com/b07q5emj
 
 喜马拉雅：https://yoyodadada.lanzous.com/b01ayf0wd
 
@@ -368,17 +368,17 @@ X.Plore：https://yoyodadada.lanzous.com/b07pt0hi
 
 【Y】
 
-【停更】影迷大院：https://yoyodadada.lanzous.com/b07psplg
+影迷大院：https://yoyodadada.lanzous.com/b07psplg
 
 YouTube.Vanced：https://yoyodadada.lanzous.com/b07psqvc
 
 优酷：https://yoyodadada.lanzous.com/b07psreb
 
-【停更】影视大全：https://yoyodadada.lanzous.com/b07psrjg
+影视大全：https://yoyodadada.lanzous.com/b07psrjg
 
-【停更】音量增强器：https://yoyodadada.lanzous.com/b07pt0ij
+音量增强器：https://yoyodadada.lanzous.com/b07pt0ij
 
-【停更】云村清洁工：https://yoyodadada.lanzous.com/b07pt0ja
+云村清洁工：https://yoyodadada.lanzous.com/b07pt0ja
 
 云视听极光-TV版：https://yoyodadada.lanzous.com/b07pt2kd
 
@@ -404,9 +404,9 @@ YouTube.Vanced：https://yoyodadada.lanzous.com/b07psqvc
 
 https://yoyodadada.lanzous.com/b01b01h9a
 
-【停更】口罩相关标准（针对2019年新冠疫情）：https://yoyodadada.lanzoui.com/b01b77bdg
+口罩相关标准（针对2019年新冠疫情）：https://yoyodadada.lanzoui.com/b01b77bdg
 
-【停更】电商平台抢购软件：https://yoyodadada.lanzoui.com/b01b77boh
+电商平台抢购软件：https://yoyodadada.lanzoui.com/b01b77boh
 
 硬件检测类：https://yoyodadada.lanzoui.com/b01bwkyod
 
