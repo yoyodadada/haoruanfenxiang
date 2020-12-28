@@ -76,6 +76,8 @@ AirPin-TV版：https://yoyodadada.lanzous.com/b07pt2jc
 
 百度贴吧：https://yoyodadada.lanzoui.com/b01bwl3xc
 
+百度输入法：https://yoyodadada.lanzous.com/b01byu8bg
+
 【C】
 
 Calc.Business（卡西欧科学计算器）：https://yoyodadada.lanzous.com/b07psqyf
