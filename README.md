@@ -78,6 +78,8 @@ AirPin-TV版：https://yoyodadada.lanzous.com/b07pt2jc
 
 百度输入法：https://yoyodadada.lanzous.com/b01byu8bg
 
+B612咔叽：https://yoyodadada.lanzous.com/b01bzf7oj 密码:6h71
+
 【C】
 
 Calc.Business（卡西欧科学计算器）：https://yoyodadada.lanzous.com/b07psqyf
