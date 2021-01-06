@@ -156,7 +156,7 @@ Instagram：https://yoyodadada.lanzous.com/b07psope
 
 IPTV：https://yoyodadada.lanzous.com/b07pspoj
 
-IDM：https://yoyodadada.lanzous.com/b07q5ehe
+IDM（已更名为1DM）：https://yoyodadada.lanzous.com/b07q5ehe
 
 InstaMod（第三方Instagram）：https://yoyodadada.lanzous.com/b07rqgvc
 
