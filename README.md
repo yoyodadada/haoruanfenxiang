@@ -180,6 +180,8 @@ IT之家：https://yoyodadada.lanzoui.com/b01bwl4kf
 
 酷我音乐-PC版：https://yoyodadada.lanzous.com/b01ay4hkh
 
+酷我畅听：https://yoyodadada.lanzous.com/b01c07vbi 密码:d78r
+
 【L】
 
 乐播：https://yoyodadada.lanzous.com/b07psqbc
