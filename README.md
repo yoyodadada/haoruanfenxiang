@@ -82,6 +82,8 @@ B612咔叽：https://yoyodadada.lanzous.com/b01bzf7oj 密码:6h71
 
 Bmap（白马地图）：https://yoyodadada.lanzous.com/b01c13ojg 密码:ht7i
 
+宝宝巴士：https://yoyodadada.lanzous.com/b01c1saha 密码:gcme
+
 【C】
 
 Calc.Business（卡西欧科学计算器）：https://yoyodadada.lanzous.com/b07psqyf
