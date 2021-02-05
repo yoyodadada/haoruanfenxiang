@@ -348,6 +348,8 @@ WPS：https://yoyodadada.lanzous.com/b07pspuf
 
 卧龙影视：https://yoyodadada.lanzous.com/b01bdfw2f
 
+WPS-PC版：https://yoyodadada.lanzous.com/b01c3bwhc 密码:8fdh
+
 【X】
 
 香哈菜谱：https://yoyodadada.lanzous.com/b07psouj
