@@ -258,6 +258,8 @@ QQ：https://yoyodadada.lanzous.com/b01b6ay1e
 
 QQ-PC版：https://yoyodadada.lanzous.com/b01b7fkvg
 
+七猫免费小说：https://yoyodadada.lanzous.com/b01c3kcmb 密码:cd9y
+
 【R】
 
 日期计算器-PC版：https://yoyodadada.lanzous.com/b07pv60j
