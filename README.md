@@ -134,6 +134,8 @@ Fancast：https://yoyodadada.lanzous.com/b07pspxi
 
 高德地图：https://yoyodadada.lanzous.com/b07psqne
 
+格式工厂-PC版：https://yoyodadada.lanzous.com/b01c4aymj 密码:5b45
+
 【H】
 
 海星模拟器：https://yoyodadada.lanzous.com/b07psppa
@@ -165,6 +167,8 @@ IDM（已更名为1DM）：https://yoyodadada.lanzous.com/b07q5ehe
 InstaMod（第三方Instagram）：https://yoyodadada.lanzous.com/b07rqgvc
 
 IT之家：https://yoyodadada.lanzoui.com/b01bwl4kf
+
+IDM-PC版：https://yoyodadada.lanzous.com/b01c4az3g 密码:4v3k
 
 【J】
 
