@@ -312,6 +312,8 @@ Tim-PC版：https://yoyodadada.lanzous.com/b01ay6ufc
 
 腾讯视频-PC版：https://yoyodadada.lanzous.com/b01b1441i
 
+TV影院-TV版：https://yoyodadada.lanzous.com/b01c4pi6h 密码:al8e
+
 【U】
 
 UnblockMusic：https://yoyodadada.lanzous.com/b01aya7ad
