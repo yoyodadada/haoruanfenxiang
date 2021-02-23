@@ -84,6 +84,8 @@ Bmap（白马地图）：https://yoyodadada.lanzous.com/b01c13ojg 密码:ht7i
 
 宝宝巴士：https://yoyodadada.lanzous.com/b01c1saha 密码:gcme
 
+百度网盘-PC版：https://yoyodadada.lanzous.com/b01c539xe 密码:gx0l
+
 【C】
 
 Calc.Business（卡西欧科学计算器）：https://yoyodadada.lanzous.com/b07psqyf
