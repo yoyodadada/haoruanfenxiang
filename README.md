@@ -204,6 +204,8 @@ IDM-PC版：https://yoyodadada.lanzous.com/b01c4az3g 密码:4v3k
 
 猎豹清理大师-TV版：https://yoyodadada.lanzous.com/b07ptskj
 
+乐播投屏：https://yoyodadada.lanzous.com/b01c6026d 密码:hqxi
+
 【M】
 
 美剧鸟：https://yoyodadada.lanzous.com/b07pspni
