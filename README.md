@@ -88,7 +88,7 @@ Bmap（白马地图）：https://yoyodadada.lanzous.com/b01c13ojg 密码:ht7i
 
 【C】
 
-Calc.Business（卡西欧科学计算器）：https://yoyodadada.lanzous.com/b07psqyf
+Calc_Business（卡西欧科学计算器）：https://yoyodadada.lanzous.com/b07psqyf
 
 CIBN聚精彩-TV版：https://yoyodadada.lanzous.com/b07pt2mf
 
@@ -144,7 +144,7 @@ Flash_Player-PC版：https://yoyodadada.lanzous.com/b01c5zykd 密码:cd0n
 
 海星模拟器：https://yoyodadada.lanzous.com/b07psppa
 
-HiPER.Calc（艾泰科学计算器）：https://yoyodadada.lanzous.com/b07psqta
+HiPER_Calc（艾泰科学计算器）：https://yoyodadada.lanzous.com/b07psqta
 
 HashTab-PC版：https://yoyodadada.lanzous.com/b07pv6ba
 
@@ -210,9 +210,9 @@ IDM-PC版：https://yoyodadada.lanzous.com/b01c4az3g 密码:4v3k
 
 芒果TV：https://yoyodadada.lanzous.com/b07psq3e
 
-MX.Player.Pro：https://yoyodadada.lanzous.com/b07psqab
+MX_Player_Pro：https://yoyodadada.lanzous.com/b07psqab
 
-MUJI.to.Sleep：https://yoyodadada.lanzous.com/b07psr6d
+MUJI_to_Sleep：https://yoyodadada.lanzous.com/b07psr6d
 
 美食杰：https://yoyodadada.lanzous.com/b07psr9g
 
@@ -282,7 +282,7 @@ SpeedTest：https://yoyodadada.lanzous.com/b07psq6h
 
 搜狗输入法：https://yoyodadada.lanzous.com/b07psrli
 
-SD.Maid：https://yoyodadada.lanzous.com/b07pt0fg
+SD_Maid：https://yoyodadada.lanzous.com/b07pt0fg
 
 扫描全能王：https://yoyodadada.lanzous.com/b07pt10h
 
@@ -310,7 +310,7 @@ Telegram：https://yoyodadada.lanzous.com/b07psqij
 
 Tim：https://yoyodadada.lanzous.com/b07pts8h
 
-tTorrent.Pro：https://yoyodadada.lanzous.com/b07ptsxc
+tTorrent_Pro：https://yoyodadada.lanzous.com/b07ptsxc
 
 Tim-PC版：https://yoyodadada.lanzous.com/b01ay6ufc
 
@@ -326,7 +326,7 @@ UnblockMusic：https://yoyodadada.lanzous.com/b01aya7ad
 
 VSCO：https://yoyodadada.lanzous.com/b07psq7i
 
-ViPER4Android.FX：https://yoyodadada.lanzous.com/b07qdymh
+ViPER4Android_FX：https://yoyodadada.lanzous.com/b07qdymh
 
 Village：https://yoyodadada.lanzous.com/b07skzmh
 
@@ -350,7 +350,7 @@ WPS：https://yoyodadada.lanzous.com/b07pspuf
 
 微软常用运行库合集-PC版：https://yoyodadada.lanzous.com/b07pycad
 
-微软.NET.Framework-PC版：https://yoyodadada.lanzous.com/b07pycbe
+微软.NET_Framework-PC版：https://yoyodadada.lanzous.com/b07pycbe
 
 微软DirectX9.0c最终用户运行库-PC版：https://yoyodadada.lanzous.com/b07pycdg
 
@@ -370,7 +370,7 @@ WPS-PC版：https://yoyodadada.lanzous.com/b01c3bwhc 密码:8fdh
 
 XMind：https://yoyodadada.lanzous.com/b07psqub
 
-X.Plore：https://yoyodadada.lanzous.com/b07pt0hi
+X-Plore：https://yoyodadada.lanzous.com/b07pt0hi
 
 新方圆影视：https://yoyodadada.lanzous.com/b07pt0lc
 
@@ -396,7 +396,7 @@ X.Plore：https://yoyodadada.lanzous.com/b07pt0hi
 
 影迷大院：https://yoyodadada.lanzous.com/b07psplg
 
-YouTube.Vanced：https://yoyodadada.lanzous.com/b07psqvc
+YouTube_Vanced：https://yoyodadada.lanzous.com/b07psqvc
 
 优酷：https://yoyodadada.lanzous.com/b07psreb
 
