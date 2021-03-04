@@ -440,7 +440,7 @@ https://yoyodadada.lanzous.com/b01b01h9a
 
 驱动管理类：https://yoyodadada.lanzoui.com/b01bwkyqf
 
-CIBN系列、泰捷盒子应用：https://yoyodadada.lanzoui.com/b01bwl23g
+TV、盒子端应用：https://yoyodadada.lanzoui.com/b01bwl23g
 
 激活工具类：https://yoyodadada.lanzous.com/b01by283a
 
