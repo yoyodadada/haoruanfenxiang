@@ -14,13 +14,13 @@ https://yoyodadada.lanzous.com/u/yoyodadada
 
 ## 说明：
 
-「好软分享」是酷安「姚小贱“精选软件”应用集」的衍生版，合并了「姚小贱“精选TV软件”应用集」，附加了PC软件，因此更名为「好软分享」。每次更新内容详见「UpdateLog」文件夹中对应的日期，同时在Telegram频道广播以及在酷安“优质APP集散地”看看号中发布。
+2021年3月19日：酷安账号被封，已卸载酷安，日后更新内容和下载地址将不会在酷安上通知。
+
+「好软分享」是酷安「姚小贱“精选软件”应用集」的衍生版，合并了「姚小贱“精选TV软件”应用集」，附加了PC软件，因此更名为「好软分享」。每次更新内容详见「UpdateLog」文件夹中对应的年月日，同时在Telegram频道广播中发布。
 
 Telegram频道（推荐加入！用于发布资源，经常发布内部资源）：https://t.me/haoruanfenxiang
 
-Telegram群组（推荐加入！用于酷友分享讨论，频道内容自动转发到群组）：https://t.me/haoruanfenxianggroup
-
-酷安看看号（删动态太严重，现在除了每次更新发一句“XXXXXX更新”也没什么作用了）：https://www.coolapk.com/dyh/1654
+Telegram群组（推荐加入！聊天吹水不开车，频道内容自动转发到群组）：https://t.me/haoruanfenxianggroup
 
 ## 版权声明：
 
