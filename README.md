@@ -174,6 +174,8 @@ IT之家：https://yoyodadada.lanzoui.com/b01bwl4kf
 
 IDM-PC版：https://yoyodadada.lanzous.com/b01c4az3g 密码:4v3k
 
+Instander（第三方Instagram）https://yoyodadada.lanzous.com/b01c7ybcd 密码:e3lv
+
 【J】
 
 今日头条：https://yoyodadada.lanzous.com/b07pspfa
