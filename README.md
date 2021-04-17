@@ -118,6 +118,8 @@ CIBN酷喵影视-TV版：https://yoyodadada.lanzous.com/b01b01k6f
 
 豆瓣：https://yoyodadada.lanzous.com/b01bh2tab
 
+大师兄影视：https://yoyodadada.lanzous.com/b01caip6d 密码:e7mc
+
 【E】
 
 儿歌多多：https://yoyodadada.lanzous.com/b07pspsd
