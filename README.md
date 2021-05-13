@@ -6,7 +6,7 @@
 
 【网盘主页】（按更新倒序排列）：
 
-https://yoyodadada.lanzous.com/u/yoyodadada
+https://yoyodadada.lanzoui.com/u/yoyodadada
 
 针对指定软件见下文【软件列表】
 
