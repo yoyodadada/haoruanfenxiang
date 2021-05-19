@@ -12,6 +12,8 @@ https://yoyodadada.lanzoui.com/u/yoyodadada
 
 注2：本页发布的资源均为公开版，内部资源请加入Telegram频道或群组。
 
+注3：蓝奏网页打不开的，把lanzous替换成lanzoui或者lanzoux就可以了。
+
 ## 说明：
 
 2021年3月19日：酷安账号被封，已卸载酷安，日后更新内容和下载地址将不会在酷安上通知。
