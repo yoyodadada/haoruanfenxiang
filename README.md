@@ -372,6 +372,8 @@ WPS：https://yoyodadada.lanzous.com/b07pspuf
 
 WPS-PC版：https://yoyodadada.lanzous.com/b01c3bwhc 密码:8fdh
 
+WinRAR-PC版：https://yoyodadada.lanzoui.com/b01cdgqih 密码:252n
+
 【X】
 
 香哈菜谱：https://yoyodadada.lanzous.com/b07psouj
