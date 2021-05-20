@@ -234,6 +234,8 @@ microG：https://yoyodadada.lanzous.com/b07pstla
 
 美图秀秀：https://yoyodadada.lanzoui.com/b01bwl4ch
 
+墨迹天气：https://yoyodadada.lanzoui.com/b01cdhakj 密码:2m1v
+
 【N】
 
 南瓜影视：https://yoyodadada.lanzous.com/b07vzgfe
