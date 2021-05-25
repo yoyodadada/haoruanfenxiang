@@ -407,6 +407,7 @@ X-Plore：https://yoyodadada.lanzous.com/b07pt0hi
 小書视界：https://yoyodadada.lanzoui.com/b01bxc0kd
 
 小红书：https://yoyodadada.lanzous.com/b01cahuri 密码:bk35
+自v6.92.0起，后续版本转发至字节网盘，下载地址：https://zijieyunpan.com/caxiLYYWEkG
 
 【Y】
 
