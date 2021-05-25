@@ -280,8 +280,6 @@ QQ-PC版：https://yoyodadada.lanzous.com/b01b7fkvg
 
 清浊：https://yoyodadada.lanzous.com/b01ca6r5c 密码:f1pr
 
-QuickPic：https://yoyodadada.lanzoui.com/b01cdxm1i 密码:bq8a
-
 【R】
 
 日期计算器-PC版：https://yoyodadada.lanzous.com/b07pv60j
