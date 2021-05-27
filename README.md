@@ -273,6 +273,7 @@ QQ音乐-PC版：https://yoyodadada.lanzous.com/b07pv63c
 QQ轻聊版-PC版：https://yoyodadada.lanzous.com/b07pv65e
 
 QQ：https://yoyodadada.lanzous.com/b01b6ay1e
+100MB以上文件下载地址：https://zijieyunpan.com/4o1nE3ssDpJ
 
 QQ-PC版：https://yoyodadada.lanzous.com/b01b7fkvg
 
@@ -369,6 +370,7 @@ WPS：https://yoyodadada.lanzous.com/b07pspuf
 我的听书：https://yoyodadada.lanzous.com/b01b34a7c
 
 微信-PC版：https://yoyodadada.lanzous.com/b01ban6ob
+100MB以上文件下载地址：https://zijieyunpan.com/UxpCk1F8h72
 
 卧龙影视：https://yoyodadada.lanzous.com/b01bdfw2f
 
@@ -410,7 +412,7 @@ X-Plore：https://yoyodadada.lanzous.com/b07pt0hi
 小書视界：https://yoyodadada.lanzoui.com/b01bxc0kd
 
 小红书：https://yoyodadada.lanzous.com/b01cahuri 密码:bk35
-自v6.92.0起，后续版本转发至字节网盘，下载地址：https://zijieyunpan.com/caxiLYYWEkG
+自v6.92.0起，后续版本超过100MB转发至字节网盘，下载地址：https://zijieyunpan.com/caxiLYYWEkG
 
 【Y】
 
