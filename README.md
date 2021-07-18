@@ -88,6 +88,8 @@ Bmap（白马地图）：https://yoyodadada.lanzous.com/b01c13ojg 密码:ht7i
 
 百度网盘-PC版：https://yoyodadada.lanzous.com/b01c539xe 密码:gx0l
 
+白菜追剧：https://yoyodadada.lanzoui.com/b01cj7euj 密码:er6s
+
 【C】
 
 Calc_Business（卡西欧科学计算器）：https://yoyodadada.lanzous.com/b07psqyf
