@@ -156,7 +156,7 @@ HashTab-PC版：https://yoyodadada.lanzous.com/b07pv6ba
 
 HDP直播-TV版：https://yoyodadada.lanzous.com/b07qdysd
 
-海阔：https://yoyodadada.lanzous.com/b07ti52b
+海阔视界：https://yoyodadada.lanzous.com/b07ti52b
 
 红椒影视：https://yoyodadada.lanzous.com/b01bamkje
 
