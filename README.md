@@ -44,197 +44,197 @@ Telegram群组（推荐加入！聊天吹水不开车，频道内容自动转发
 
 【A】
 
-APKPure：https://yoyodadada.lanzous.com/b07psq9a
+APKPure：https://yoyodadada.lanzoui.com/b07psq9a
 
-爱奇艺：https://yoyodadada.lanzous.com/b07psrbi
+爱奇艺：https://yoyodadada.lanzoui.com/b07psrbi
 
-ADM：https://yoyodadada.lanzous.com/b07pt0kb
+ADM：https://yoyodadada.lanzoui.com/b07pt0kb
 
-AirPin-TV版：https://yoyodadada.lanzous.com/b07pt2jc
+AirPin-TV版：https://yoyodadada.lanzoui.com/b07pt2jc
 
-爱奇艺极速版：https://yoyodadada.lanzous.com/b01ay6tbc
+爱奇艺极速版：https://yoyodadada.lanzoui.com/b01ay6tbc
 
 【B】
 
-百度网盘：https://yoyodadada.lanzous.com/b07pspid
+百度网盘：https://yoyodadada.lanzoui.com/b07pspid
 
-哔哩哔哩：https://yoyodadada.lanzous.com/b07pspyj
+哔哩哔哩：https://yoyodadada.lanzoui.com/b07pspyj
 
-宝贝听听：https://yoyodadada.lanzous.com/b07psr7e
+宝贝听听：https://yoyodadada.lanzoui.com/b07psr7e
 
-贝瓦儿歌：https://yoyodadada.lanzous.com/b07psr8f
+贝瓦儿歌：https://yoyodadada.lanzoui.com/b07psr8f
 
-白鲸TV-TV版：https://yoyodadada.lanzous.com/b07pt2gj
+白鲸TV-TV版：https://yoyodadada.lanzoui.com/b07pt2gj
 
-贝瓦儿歌-TV版：https://yoyodadada.lanzous.com/b07pt2ha
+贝瓦儿歌-TV版：https://yoyodadada.lanzoui.com/b07pt2ha
 
-暴风影音-TV版：https://yoyodadada.lanzous.com/b07pts0j
+暴风影音-TV版：https://yoyodadada.lanzoui.com/b07pts0j
 
-暴风影音-PC版：https://yoyodadada.lanzous.com/b07pv62b
+暴风影音-PC版：https://yoyodadada.lanzoui.com/b07pv62b
 
-哔哩哔哩-TV版（第三方）：https://yoyodadada.lanzous.com/b07qdyaf
+哔哩哔哩-TV版（第三方）：https://yoyodadada.lanzoui.com/b07qdyaf
 
-百度地图：https://yoyodadada.lanzous.com/b07ujf0b
+百度地图：https://yoyodadada.lanzoui.com/b07ujf0b
 
 百度贴吧：https://yoyodadada.lanzoui.com/b01bwl3xc
 
-百度输入法：https://yoyodadada.lanzous.com/b01byu8bg
+百度输入法：https://yoyodadada.lanzoui.com/b01byu8bg
 
-B612咔叽：https://yoyodadada.lanzous.com/b01bzf7oj 密码:6h71
+B612咔叽：https://yoyodadada.lanzoui.com/b01bzf7oj 密码:6h71
 
-Bmap（白马地图）：https://yoyodadada.lanzous.com/b01c13ojg 密码:ht7i
+Bmap（白马地图）：https://yoyodadada.lanzoui.com/b01c13ojg 密码:ht7i
 
-宝宝巴士：https://yoyodadada.lanzous.com/b01c1saha 密码:gcme
+宝宝巴士：https://yoyodadada.lanzoui.com/b01c1saha 密码:gcme
 
-百度网盘-PC版：https://yoyodadada.lanzous.com/b01c539xe 密码:gx0l
+百度网盘-PC版：https://yoyodadada.lanzoui.com/b01c539xe 密码:gx0l
 
 白菜追剧：https://yoyodadada.lanzoui.com/b01cj7euj 密码:er6s
 
 【C】
 
-Calc_Business（卡西欧科学计算器）：https://yoyodadada.lanzous.com/b07psqyf
+Calc_Business（卡西欧科学计算器）：https://yoyodadada.lanzoui.com/b07psqyf
 
-CIBN聚精彩-TV版：https://yoyodadada.lanzous.com/b07pt2mf
+CIBN聚精彩-TV版：https://yoyodadada.lanzoui.com/b07pt2mf
 
-橙色直播-TV版：https://yoyodadada.lanzous.com/b07pt2pi
+橙色直播-TV版：https://yoyodadada.lanzoui.com/b07pt2pi
 
-CAD看图王：https://yoyodadada.lanzous.com/b07ptt2h
+CAD看图王：https://yoyodadada.lanzoui.com/b07ptt2h
 
-CGI-PC版（系统镜像恢复工具）：https://yoyodadada.lanzous.com/b07pv6fe
+CGI-PC版（系统镜像恢复工具）：https://yoyodadada.lanzoui.com/b07pv6fe
 
-CCleaner-PC版：https://yoyodadada.lanzous.com/b07pv6ih
+CCleaner-PC版：https://yoyodadada.lanzoui.com/b07pv6ih
 
-CAD快速看图-PC版：https://yoyodadada.lanzous.com/b07pv6ji
+CAD快速看图-PC版：https://yoyodadada.lanzoui.com/b07pv6ji
 
-磁力猫：https://yoyodadada.lanzous.com/b07pwe9c
+磁力猫：https://yoyodadada.lanzoui.com/b07pwe9c
 
-CIBN酷喵影视-TV版：https://yoyodadada.lanzous.com/b01b01k6f
+CIBN酷喵影视-TV版：https://yoyodadada.lanzoui.com/b01b01k6f
 
 【D】
 
-电视猫-TV版：https://yoyodadada.lanzous.com/b07pt2dg
+电视猫-TV版：https://yoyodadada.lanzoui.com/b07pt2dg
 
-电影天堂-TV版：https://yoyodadada.lanzous.com/b07pt2eh
+电影天堂-TV版：https://yoyodadada.lanzoui.com/b07pt2eh
 
-电视家-TV版：https://yoyodadada.lanzous.com/b07qglza
+电视家-TV版：https://yoyodadada.lanzoui.com/b07qglza
 
-第一弹：https://yoyodadada.lanzous.com/b01bc30jc
+第一弹：https://yoyodadada.lanzoui.com/b01bc30jc
 
-豆瓣：https://yoyodadada.lanzous.com/b01bh2tab
+豆瓣：https://yoyodadada.lanzoui.com/b01bh2tab
 
-大师兄影视：https://yoyodadada.lanzous.com/b01caip6d 密码:e7mc
+大师兄影视：https://yoyodadada.lanzoui.com/b01caip6d 密码:e7mc
 
 【E】
 
-儿歌多多：https://yoyodadada.lanzous.com/b07pspsd
+儿歌多多：https://yoyodadada.lanzoui.com/b07pspsd
 
-Everything-PC版：https://yoyodadada.lanzous.com/b01b8a84d
+Everything-PC版：https://yoyodadada.lanzoui.com/b01b8a84d
 
 2345看图王-PC版：https://yoyodadada.lanzoui.com/b01bsrbnc
 
 【F】
 
-Fancast：https://yoyodadada.lanzous.com/b07pspxi
+Fancast：https://yoyodadada.lanzoui.com/b07pspxi
 
-番茄影视：https://yoyodadada.lanzous.com/b01bebx9a
+番茄影视：https://yoyodadada.lanzoui.com/b01bebx9a
 
-Flash_Player-PC版：https://yoyodadada.lanzous.com/b01c5zykd 密码:cd0n
+Flash_Player-PC版：https://yoyodadada.lanzoui.com/b01c5zykd 密码:cd0n
 
 【G】
 
-高德地图：https://yoyodadada.lanzous.com/b07psqne
+高德地图：https://yoyodadada.lanzoui.com/b07psqne
 
-格式工厂-PC版：https://yoyodadada.lanzous.com/b01c4aymj 密码:5b45
+格式工厂-PC版：https://yoyodadada.lanzoui.com/b01c4aymj 密码:5b45
 
 【H】
 
-海星模拟器：https://yoyodadada.lanzous.com/b07psppa
+海星模拟器：https://yoyodadada.lanzoui.com/b07psppa
 
-HiPER_Calc（艾泰科学计算器）：https://yoyodadada.lanzous.com/b07psqta
+HiPER_Calc（艾泰科学计算器）：https://yoyodadada.lanzoui.com/b07psqta
 
-HashTab-PC版：https://yoyodadada.lanzous.com/b07pv6ba
+HashTab-PC版：https://yoyodadada.lanzoui.com/b07pv6ba
 
-HDP直播-TV版：https://yoyodadada.lanzous.com/b07qdysd
+HDP直播-TV版：https://yoyodadada.lanzoui.com/b07qdysd
 
-海阔视界：https://yoyodadada.lanzous.com/b07ti52b
+海阔视界：https://yoyodadada.lanzoui.com/b07ti52b
 
-红椒影视：https://yoyodadada.lanzous.com/b01bamkje
+红椒影视：https://yoyodadada.lanzoui.com/b01bamkje
 
-韩剧TV（com.leku.hmsq）：https://yoyodadada.lanzous.com/b01bc30le
+韩剧TV（com.leku.hmsq）：https://yoyodadada.lanzoui.com/b01bc30le
 
-韩剧TV（com.babycloud.hanju）：https://yoyodadada.lanzous.com/b01bcoped
+韩剧TV（com.babycloud.hanju）：https://yoyodadada.lanzoui.com/b01bcoped
 
-画廊：https://yoyodadada.lanzous.com/b01bh360j
+画廊：https://yoyodadada.lanzoui.com/b01bh360j
 
 火星直播-TV版：https://yoyodadada.lanzoui.com/b01chsuaj 密码:7fl0
 
 【I】
 
-Instagram：https://yoyodadada.lanzous.com/b07psope
+Instagram：https://yoyodadada.lanzoui.com/b07psope
 
-IPTV：https://yoyodadada.lanzous.com/b07pspoj
+IPTV：https://yoyodadada.lanzoui.com/b07pspoj
 
-IDM（已更名为1DM）：https://yoyodadada.lanzous.com/b07q5ehe
+IDM（已更名为1DM）：https://yoyodadada.lanzoui.com/b07q5ehe
 
-InstaMod（第三方Instagram）：https://yoyodadada.lanzous.com/b07rqgvc
+InstaMod（第三方Instagram）：https://yoyodadada.lanzoui.com/b07rqgvc
 
 IT之家：https://yoyodadada.lanzoui.com/b01bwl4kf
 
-IDM-PC版：https://yoyodadada.lanzous.com/b01c4az3g 密码:4v3k
+IDM-PC版：https://yoyodadada.lanzoui.com/b01c4az3g 密码:4v3k
 
-Instander（第三方Instagram）https://yoyodadada.lanzous.com/b01c7ybcd 密码:e3lv
+Instander（第三方Instagram）https://yoyodadada.lanzoui.com/b01c7ybcd 密码:e3lv
 
 【J】
 
-今日头条：https://yoyodadada.lanzous.com/b07pspfa
+今日头条：https://yoyodadada.lanzoui.com/b07pspfa
 
-鲸鱼TV-TV版：https://yoyodadada.lanzous.com/b07qdyqb
+鲸鱼TV-TV版：https://yoyodadada.lanzoui.com/b07qdyqb
 
-京东：https://yoyodadada.lanzous.com/b01ayf0ub
+京东：https://yoyodadada.lanzoui.com/b01ayf0ub
 
-加菲猫影视：https://yoyodadada.lanzous.com/b01c34dpe 密码:hgmh
+加菲猫影视：https://yoyodadada.lanzoui.com/b01c34dpe 密码:hgmh
 
 【K】
 
-快点投屏：https://yoyodadada.lanzous.com/b07psqqh
+快点投屏：https://yoyodadada.lanzoui.com/b07psqqh
 
-快图浏览：https://yoyodadada.lanzous.com/b07pt0yf
+快图浏览：https://yoyodadada.lanzoui.com/b07pt0yf
 
-酷我音乐：https://yoyodadada.lanzous.com/b07ryhlg
+酷我音乐：https://yoyodadada.lanzoui.com/b07ryhlg
 
-酷我音乐-PC版：https://yoyodadada.lanzous.com/b01ay4hkh
+酷我音乐-PC版：https://yoyodadada.lanzoui.com/b01ay4hkh
 
-酷我畅听：https://yoyodadada.lanzous.com/b01c07vbi 密码:d78r
+酷我畅听：https://yoyodadada.lanzoui.com/b01c07vbi 密码:d78r
 
 【L】
 
-乐播：https://yoyodadada.lanzous.com/b07psqbc
+乐播：https://yoyodadada.lanzoui.com/b07psqbc
 
-猎豹清理大师精简版：https://yoyodadada.lanzous.com/b07pt0wd
+猎豹清理大师精简版：https://yoyodadada.lanzoui.com/b07pt0wd
 
-猎豹清理大师-TV版：https://yoyodadada.lanzous.com/b07ptskj
+猎豹清理大师-TV版：https://yoyodadada.lanzoui.com/b07ptskj
 
-乐播投屏：https://yoyodadada.lanzous.com/b01c6026d 密码:hqxi
+乐播投屏：https://yoyodadada.lanzoui.com/b01c6026d 密码:hqxi
 
 【M】
 
-美剧鸟：https://yoyodadada.lanzous.com/b07pspni
+美剧鸟：https://yoyodadada.lanzoui.com/b07pspni
 
-芒果TV：https://yoyodadada.lanzous.com/b07psq3e
+芒果TV：https://yoyodadada.lanzoui.com/b07psq3e
 
-MX_Player_Pro：https://yoyodadada.lanzous.com/b07psqab
+MX_Player_Pro：https://yoyodadada.lanzoui.com/b07psqab
 
-MUJI_to_Sleep：https://yoyodadada.lanzous.com/b07psr6d
+MUJI_to_Sleep：https://yoyodadada.lanzoui.com/b07psr6d
 
-美食杰：https://yoyodadada.lanzous.com/b07psr9g
+美食杰：https://yoyodadada.lanzoui.com/b07psr9g
 
-microG：https://yoyodadada.lanzous.com/b07pstla
+microG：https://yoyodadada.lanzoui.com/b07pstla
 
-美柚：https://yoyodadada.lanzous.com/b07pt0xe
+美柚：https://yoyodadada.lanzoui.com/b07pt0xe
 
-魔力视频-TV版：https://yoyodadada.lanzous.com/b07pt2ng
+魔力视频-TV版：https://yoyodadada.lanzoui.com/b07pt2ng
 
-芒果TV-TV版：https://yoyodadada.lanzous.com/b01b01k8h
+芒果TV-TV版：https://yoyodadada.lanzoui.com/b01b01k8h
 
 美图秀秀：https://yoyodadada.lanzoui.com/b01bwl4ch
 
@@ -242,141 +242,141 @@ microG：https://yoyodadada.lanzous.com/b07pstla
 
 【N】
 
-南瓜影视：https://yoyodadada.lanzous.com/b07vzgfe
+南瓜影视：https://yoyodadada.lanzoui.com/b07vzgfe
 
-南瓜美剧：https://yoyodadada.lanzous.com/b01azoofa
+南瓜美剧：https://yoyodadada.lanzoui.com/b01azoofa
 
 【P】
 
-葡萄影视：https://yoyodadada.lanzous.com/b07pspch
+葡萄影视：https://yoyodadada.lanzoui.com/b07pspch
 
-PrintHand：https://yoyodadada.lanzous.com/b07pspwh
+PrintHand：https://yoyodadada.lanzoui.com/b07pspwh
 
-PrintShare：https://yoyodadada.lanzous.com/b07psq2d
+PrintShare：https://yoyodadada.lanzoui.com/b07psq2d
 
-PanDownload：https://yoyodadada.lanzous.com/b07psqcd
+PanDownload：https://yoyodadada.lanzoui.com/b07psqcd
 
-PowerClean：https://yoyodadada.lanzous.com/b07pt0vc
+PowerClean：https://yoyodadada.lanzoui.com/b07pt0vc
 
-Photoshop-PC版：https://yoyodadada.lanzous.com/b07pv67g
+Photoshop-PC版：https://yoyodadada.lanzoui.com/b07pv67g
 
-PanDownload-PC版：https://yoyodadada.lanzous.com/b07pv69i
+PanDownload-PC版：https://yoyodadada.lanzoui.com/b07pv69i
 
-PotPlayer-PC版：https://yoyodadada.lanzous.com/b07rt7af
+PotPlayer-PC版：https://yoyodadada.lanzoui.com/b07rt7af
 
 【Q】
 
-QQ音乐：https://yoyodadada.lanzous.com/b07psr3a
+QQ音乐：https://yoyodadada.lanzoui.com/b07psr3a
 
-蜻蜓FM：https://yoyodadada.lanzous.com/b07pt0ta
+蜻蜓FM：https://yoyodadada.lanzoui.com/b07pt0ta
 
-QQ轻聊版：https://yoyodadada.lanzous.com/b07ptrve
+QQ轻聊版：https://yoyodadada.lanzoui.com/b07ptrve
 
-QQ音乐-PC版：https://yoyodadada.lanzous.com/b07pv63c
+QQ音乐-PC版：https://yoyodadada.lanzoui.com/b07pv63c
 
-QQ轻聊版-PC版：https://yoyodadada.lanzous.com/b07pv65e
+QQ轻聊版-PC版：https://yoyodadada.lanzoui.com/b07pv65e
 
-QQ：https://yoyodadada.lanzous.com/b01b6ay1e （100MB以上文件下载地址：https://zijieyunpan.com/4o1nE3ssDpJ ）
+QQ：https://yoyodadada.lanzoui.com/b01b6ay1e （100MB以上文件下载地址：https://zijieyunpan.com/4o1nE3ssDpJ ）
 
-QQ-PC版：https://yoyodadada.lanzous.com/b01b7fkvg
+QQ-PC版：https://yoyodadada.lanzoui.com/b01b7fkvg
 
-七猫免费小说：https://yoyodadada.lanzous.com/b01c3kcmb 密码:cd9y
+七猫免费小说：https://yoyodadada.lanzoui.com/b01c3kcmb 密码:cd9y
 
-清浊：https://yoyodadada.lanzous.com/b01ca6r5c 密码:f1pr
+清浊：https://yoyodadada.lanzoui.com/b01ca6r5c 密码:f1pr
 
 【R】
 
-日期计算器-PC版：https://yoyodadada.lanzous.com/b07pv60j
+日期计算器-PC版：https://yoyodadada.lanzoui.com/b07pv60j
 
-rufus-PC版：https://yoyodadada.lanzous.com/b07rx88d
+rufus-PC版：https://yoyodadada.lanzoui.com/b07rx88d
 
-人人视频：https://yoyodadada.lanzous.com/b01bh2x6b
+人人视频：https://yoyodadada.lanzoui.com/b01bh2x6b
 
 【S】
 
-SpeedTest：https://yoyodadada.lanzous.com/b07psq6h
+SpeedTest：https://yoyodadada.lanzoui.com/b07psq6h
 
-搜狗输入法：https://yoyodadada.lanzous.com/b07psrli
+搜狗输入法：https://yoyodadada.lanzoui.com/b07psrli
 
-SD_Maid：https://yoyodadada.lanzous.com/b07pt0fg
+SD_Maid：https://yoyodadada.lanzoui.com/b07pt0fg
 
-扫描全能王：https://yoyodadada.lanzous.com/b07pt10h
+扫描全能王：https://yoyodadada.lanzoui.com/b07pt10h
 
-搜狗输入法-PC版：https://yoyodadada.lanzous.com/b07pv5xg
+搜狗输入法-PC版：https://yoyodadada.lanzoui.com/b07pv5xg
 
-SpeedPan-PC版：https://yoyodadada.lanzous.com/b07qbfze
+SpeedPan-PC版：https://yoyodadada.lanzoui.com/b07qbfze
 
-思维导图：https://yoyodadada.lanzous.com/b07qdyyj
+思维导图：https://yoyodadada.lanzoui.com/b07qdyyj
 
-水印相机：https://yoyodadada.lanzous.com/b01b0w34h
+水印相机：https://yoyodadada.lanzoui.com/b01b0w34h
 
-搜书大师：https://yoyodadada.lanzous.com/b01b8a87g
+搜书大师：https://yoyodadada.lanzoui.com/b01b8a87g
 
 【T】
 
-腾讯视频：https://yoyodadada.lanzous.com/b07psoqf
+腾讯视频：https://yoyodadada.lanzoui.com/b07psoqf
 
-腾讯视频极速版：https://yoyodadada.lanzous.com/b07psqde
+腾讯视频极速版：https://yoyodadada.lanzoui.com/b07psqde
 
-Telegram：https://yoyodadada.lanzous.com/b07psqij
+Telegram：https://yoyodadada.lanzoui.com/b07psqij
 
-淘宝：https://yoyodadada.lanzous.com/b07psrif
+淘宝：https://yoyodadada.lanzoui.com/b07psrif
 
-太极：https://yoyodadada.lanzous.com/b07pt0of
+太极：https://yoyodadada.lanzoui.com/b07pt0of
 
-Tim：https://yoyodadada.lanzous.com/b07pts8h
+Tim：https://yoyodadada.lanzoui.com/b07pts8h
 
-tTorrent_Pro：https://yoyodadada.lanzous.com/b07ptsxc
+tTorrent_Pro：https://yoyodadada.lanzoui.com/b07ptsxc
 
-Tim-PC版：https://yoyodadada.lanzous.com/b01ay6ufc
+Tim-PC版：https://yoyodadada.lanzoui.com/b01ay6ufc
 
-腾讯视频-PC版：https://yoyodadada.lanzous.com/b01b1441i
+腾讯视频-PC版：https://yoyodadada.lanzoui.com/b01b1441i
 
-TV影院-TV版：https://yoyodadada.lanzous.com/b01c4pi6h 密码:al8e
+TV影院-TV版：https://yoyodadada.lanzoui.com/b01c4pi6h 密码:al8e
 
 【U】
 
-UnblockMusic：https://yoyodadada.lanzous.com/b01aya7ad
+UnblockMusic：https://yoyodadada.lanzoui.com/b01aya7ad
 
 【V】
 
-VSCO：https://yoyodadada.lanzous.com/b07psq7i
+VSCO：https://yoyodadada.lanzoui.com/b07psq7i
 
-ViPER4Android_FX：https://yoyodadada.lanzous.com/b07qdymh
+ViPER4Android_FX：https://yoyodadada.lanzoui.com/b07qdymh
 
-Village：https://yoyodadada.lanzous.com/b07skzmh
+Village：https://yoyodadada.lanzoui.com/b07skzmh
 
 【W】
 
-wifi万能钥匙：https://yoyodadada.lanzous.com/b07pspej
+wifi万能钥匙：https://yoyodadada.lanzoui.com/b07pspej
 
-网易公开课：https://yoyodadada.lanzous.com/b07psphc
+网易公开课：https://yoyodadada.lanzoui.com/b07psphc
 
-WPS：https://yoyodadada.lanzous.com/b07pspuf
+WPS：https://yoyodadada.lanzoui.com/b07pspuf
 
-完美视频大全：https://yoyodadada.lanzous.com/b07psq1c
+完美视频大全：https://yoyodadada.lanzoui.com/b07psq1c
 
-网易云音乐：https://yoyodadada.lanzous.com/b07psqkb
+网易云音乐：https://yoyodadada.lanzoui.com/b07psqkb
 
-悟饭游戏厅：https://yoyodadada.lanzous.com/b07psqzg
+悟饭游戏厅：https://yoyodadada.lanzoui.com/b07psqzg
 
-完美视频大全-TV版：https://yoyodadada.lanzous.com/b07pt2ad
+完美视频大全-TV版：https://yoyodadada.lanzoui.com/b07pt2ad
 
-微博国际版：https://yoyodadada.lanzous.com/b07pxk9e
+微博国际版：https://yoyodadada.lanzoui.com/b07pxk9e
 
-微软常用运行库合集-PC版：https://yoyodadada.lanzous.com/b07pycad
+微软常用运行库合集-PC版：https://yoyodadada.lanzoui.com/b07pycad
 
-微软.NET_Framework-PC版：https://yoyodadada.lanzous.com/b07pycbe
+微软.NET_Framework-PC版：https://yoyodadada.lanzoui.com/b07pycbe
 
-微软DirectX9.0c最终用户运行库-PC版：https://yoyodadada.lanzous.com/b07pycdg
+微软DirectX9.0c最终用户运行库-PC版：https://yoyodadada.lanzoui.com/b07pycdg
 
-我的听书：https://yoyodadada.lanzous.com/b01b34a7c
+我的听书：https://yoyodadada.lanzoui.com/b01b34a7c
 
-微信-PC版：https://yoyodadada.lanzous.com/b01ban6ob （100MB以上文件下载地址：https://zijieyunpan.com/UxpCk1F8h72 ）
+微信-PC版：https://yoyodadada.lanzoui.com/b01ban6ob （100MB以上文件下载地址：https://zijieyunpan.com/UxpCk1F8h72 ）
 
-卧龙影视：https://yoyodadada.lanzous.com/b01bdfw2f
+卧龙影视：https://yoyodadada.lanzoui.com/b01bdfw2f
 
-WPS-PC版：https://yoyodadada.lanzous.com/b01c3bwhc 密码:8fdh （100MB以上文件下载地址：https://zijieyunpan.com/6XP5mgGDTaj ）
+WPS-PC版：https://yoyodadada.lanzoui.com/b01c3bwhc 密码:8fdh （100MB以上文件下载地址：https://zijieyunpan.com/6XP5mgGDTaj ）
 
 WinRAR-PC版：https://yoyodadada.lanzoui.com/b01cdgqih 密码:252n
 
@@ -384,73 +384,73 @@ WinRAR-PC版：https://yoyodadada.lanzoui.com/b01cdgqih 密码:252n
 
 【X】
 
-香哈菜谱：https://yoyodadada.lanzous.com/b07psouj
+香哈菜谱：https://yoyodadada.lanzoui.com/b07psouj
 
-下厨房：https://yoyodadada.lanzous.com/b07psqef
+下厨房：https://yoyodadada.lanzoui.com/b07psqef
 
-XMind：https://yoyodadada.lanzous.com/b07psqub
+XMind：https://yoyodadada.lanzoui.com/b07psqub
 
-X-Plore：https://yoyodadada.lanzous.com/b07pt0hi
+X-Plore：https://yoyodadada.lanzoui.com/b07pt0hi
 
-新方圆影视：https://yoyodadada.lanzous.com/b07pt0lc
+新方圆影视：https://yoyodadada.lanzoui.com/b07pt0lc
 
-星集视频-TV版：https://yoyodadada.lanzous.com/b07pt2le
+星集视频-TV版：https://yoyodadada.lanzoui.com/b07pt2le
 
-迅雷：https://yoyodadada.lanzous.com/b07ptroh
+迅雷：https://yoyodadada.lanzoui.com/b07ptroh
 
-小磁力BT：https://yoyodadada.lanzous.com/b07ptssh
+小磁力BT：https://yoyodadada.lanzoui.com/b07ptssh
 
-迅雷-PC版：https://yoyodadada.lanzous.com/b07pv5ra
+迅雷-PC版：https://yoyodadada.lanzoui.com/b07pv5ra
 
-新方圆TV-TV版：https://yoyodadada.lanzous.com/b07q5emj
+新方圆TV-TV版：https://yoyodadada.lanzoui.com/b07q5emj
 
-喜马拉雅：https://yoyodadada.lanzous.com/b01ayf0wd
+喜马拉雅：https://yoyodadada.lanzoui.com/b01ayf0wd
 
-迅游手游加速器：https://yoyodadada.lanzous.com/b01b1444b
+迅游手游加速器：https://yoyodadada.lanzoui.com/b01b1444b
 
-星雨视频：https://yoyodadada.lanzous.com/b01bc2zpc
+星雨视频：https://yoyodadada.lanzoui.com/b01bc2zpc
 
 小書视界：https://yoyodadada.lanzoui.com/b01bxc0kd
 
-小红书：https://yoyodadada.lanzous.com/b01cahuri 密码:bk35 （100MB以上文件下载地址：https://zijieyunpan.com/caxiLYYWEkG ）
+小红书：https://yoyodadada.lanzoui.com/b01cahuri 密码:bk35 （100MB以上文件下载地址：https://zijieyunpan.com/caxiLYYWEkG ）
 
 【Y】
 
-影迷大院：https://yoyodadada.lanzous.com/b07psplg
+影迷大院：https://yoyodadada.lanzoui.com/b07psplg
 
-YouTube_Vanced：https://yoyodadada.lanzous.com/b07psqvc
+YouTube_Vanced：https://yoyodadada.lanzoui.com/b07psqvc
 
-优酷：https://yoyodadada.lanzous.com/b07psreb
+优酷：https://yoyodadada.lanzoui.com/b07psreb
 
-影视大全：https://yoyodadada.lanzous.com/b07psrjg
+影视大全：https://yoyodadada.lanzoui.com/b07psrjg
 
-音量增强器：https://yoyodadada.lanzous.com/b07pt0ij
+音量增强器：https://yoyodadada.lanzoui.com/b07pt0ij
 
-云村清洁工：https://yoyodadada.lanzous.com/b07pt0ja
+云村清洁工：https://yoyodadada.lanzoui.com/b07pt0ja
 
-云视听极光-TV版：https://yoyodadada.lanzous.com/b07pt2kd
+云视听极光-TV版：https://yoyodadada.lanzoui.com/b07pt2kd
 
-云视听悦厅TV-TV版：https://yoyodadada.lanzous.com/b01b1ntde
+云视听悦厅TV-TV版：https://yoyodadada.lanzoui.com/b01b1ntde
 
-银河奇异果-TV版：https://yoyodadada.lanzous.com/b01b27qha
+银河奇异果-TV版：https://yoyodadada.lanzoui.com/b01b27qha
 
-叶子TV-TV版：https://yoyodadada.lanzous.com/b01b9ps0f
+叶子TV-TV版：https://yoyodadada.lanzoui.com/b01b9ps0f
 
-云视听小电视-TV版（哔哩哔哩官方TV版）：https://yoyodadada.lanzous.com/b01bh3pgj
+云视听小电视-TV版（哔哩哔哩官方TV版）：https://yoyodadada.lanzoui.com/b01bh3pgj
 
 有道云笔记：https://yoyodadada.lanzoui.com/b01bwl3cb
 
 【Z】
 
-支付宝：https://yoyodadada.lanzous.com/b07psrmj
+支付宝：https://yoyodadada.lanzoui.com/b07psrmj
 
-知乎：https://yoyodadada.lanzous.com/b07psrob
+知乎：https://yoyodadada.lanzoui.com/b07psrob
 
 资源猫：https://yoyodadada.lanzoui.com/b01bxc2yj
 
 【未归类、合集】（一些未按应用名称首字母归类的比较好用的软件）
 
-https://yoyodadada.lanzous.com/b01b01h9a
+https://yoyodadada.lanzoui.com/b01b01h9a
 
 口罩相关标准（针对2019年新冠疫情）：https://yoyodadada.lanzoui.com/b01b77bdg
 
@@ -462,10 +462,10 @@ https://yoyodadada.lanzous.com/b01b01h9a
 
 TV、盒子端应用：https://yoyodadada.lanzoui.com/b01bwl23g
 
-激活工具类：https://yoyodadada.lanzous.com/b01by283a
+激活工具类：https://yoyodadada.lanzoui.com/b01by283a
 
-电商平台活动工具：https://yoyodadada.lanzous.com/b01c33fdi 密码:a21b
+电商平台活动工具：https://yoyodadada.lanzoui.com/b01c33fdi 密码:a21b
 
-PC端应用：https://yoyodadada.lanzous.com/b01c63npg 密码:er0q
+PC端应用：https://yoyodadada.lanzoui.com/b01c63npg 密码:er0q
 
 考试类应用：https://yoyodadada.lanzoui.com/b01cdh9qj 密码:c80i
