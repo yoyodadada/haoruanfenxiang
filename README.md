@@ -54,6 +54,8 @@ AirPin-TV版：https://yoyodadada.lanzoui.com/b07pt2jc
 
 爱奇艺极速版：https://yoyodadada.lanzoui.com/b01ay6tbc
 
+安卓清理君：https://yoyodadada.lanzoui.com/b01cl811a 密码:eb3x
+
 【B】
 
 百度网盘：https://yoyodadada.lanzoui.com/b07pspid
