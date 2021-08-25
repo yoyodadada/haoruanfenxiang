@@ -368,7 +368,7 @@ WPS：https://yoyodadada.lanzoui.com/b07pspuf
 
 微软常用运行库合集-PC版：https://yoyodadada.lanzoui.com/b07pycad
 
-微软.NET_Framework-PC版：https://yoyodadada.lanzoui.com/b07pycbe
+微软.NET离线运行库合集-PC版：https://yoyodadada.lanzoui.com/b07pycbe
 
 微软DirectX9.0c最终用户运行库-PC版：https://yoyodadada.lanzoui.com/b07pycdg
 
