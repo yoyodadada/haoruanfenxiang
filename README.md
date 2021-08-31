@@ -264,6 +264,8 @@ microG：https://yoyodadada.lanzoui.com/b07pstla
 
 南瓜美剧：https://yoyodadada.lanzoui.com/b01azoofa
 
+奈菲影视：https://yoyodadada.lanzoui.com/b01ciguoh 密码:elsb
+
 【P】
 
 葡萄影视：https://yoyodadada.lanzoui.com/b07pspch
