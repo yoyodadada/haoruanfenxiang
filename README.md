@@ -56,6 +56,8 @@ AirPin-TV版：https://yoyodadada.lanzoui.com/b07pt2jc
 
 安卓清理君：https://yoyodadada.lanzoui.com/b01cl811a 密码:eb3x
 
+阿哥美剧：https://yoyodadada.lanzoui.com/b01co9qmf 密码:7i0g
+
 【B】
 
 百度网盘：https://yoyodadada.lanzoui.com/b07pspid
@@ -207,6 +209,8 @@ Instander（第三方Instagram）https://yoyodadada.lanzoui.com/b01c7ybcd 密码
 9亿TV-TV版：https://yoyodadada.lanzoui.com/b01co9mmb 密码:f10w
 
 聚多影视-TV版：https://yoyodadada.lanzoui.com/b01co9mrg 密码:9qeb
+
+极光影院：https://yoyodadada.lanzoui.com/b01co9puh 密码:f43v
 
 【K】
 
@@ -429,6 +433,8 @@ X-Plore：https://yoyodadada.lanzoui.com/b07pt0hi
 小書视界：https://yoyodadada.lanzoui.com/b01bxc0kd
 
 小红书：https://yoyodadada.lanzoui.com/b01cahuri 密码:bk35 （100MB以上文件下载地址：https://zijieyunpan.com/caxiLYYWEkG ）
+
+讯飞语记：https://yoyodadada.lanzoui.com/b01co9qad 密码:et0k
 
 【Y】
 
