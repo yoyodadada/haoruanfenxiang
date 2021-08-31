@@ -92,6 +92,8 @@ Bmap（白马地图）：https://yoyodadada.lanzoui.com/b01c13ojg 密码:ht7i
 
 白菜追剧：https://yoyodadada.lanzoui.com/b01cj7euj 密码:er6s
 
+百度网盘-TV版：https://yoyodadada.lanzoui.com/b01co9jpg 密码:f5rg
+
 【C】
 
 Calc_Business（卡西欧科学计算器）：https://yoyodadada.lanzoui.com/b07psqyf
@@ -111,6 +113,8 @@ CAD快速看图-PC版：https://yoyodadada.lanzoui.com/b07pv6ji
 磁力猫：https://yoyodadada.lanzoui.com/b07pwe9c
 
 CIBN酷喵影视-TV版：https://yoyodadada.lanzoui.com/b01b01k6f
+
+CIBN聚体育-TV版：https://yoyodadada.lanzoui.com/b01co9mcb 密码:bmux
 
 【D】
 
@@ -170,6 +174,10 @@ HDP直播-TV版：https://yoyodadada.lanzoui.com/b07qdysd
 
 火星直播-TV版：https://yoyodadada.lanzoui.com/b01chsuaj 密码:7fl0
 
+华数TV-TV版：https://yoyodadada.lanzoui.com/b01co9kfc 密码:7hfg
+
+红影TV-TV版：https://yoyodadada.lanzoui.com/b01co9kuh 密码:f235
+
 【I】
 
 Instagram：https://yoyodadada.lanzoui.com/b07psope
@@ -195,6 +203,10 @@ Instander（第三方Instagram）https://yoyodadada.lanzoui.com/b01c7ybcd 密码
 京东：https://yoyodadada.lanzoui.com/b01ayf0ub
 
 加菲猫影视：https://yoyodadada.lanzoui.com/b01c34dpe 密码:hgmh
+
+9亿TV-TV版：https://yoyodadada.lanzoui.com/b01co9mmb 密码:f10w
+
+聚多影视-TV版：https://yoyodadada.lanzoui.com/b01co9mrg 密码:9qeb
 
 【K】
 
@@ -336,6 +348,8 @@ Tim-PC版：https://yoyodadada.lanzoui.com/b01ay6ufc
 
 TV影院-TV版：https://yoyodadada.lanzoui.com/b01c4pi6h 密码:al8e
 
+泰捷视频-TV版：https://yoyodadada.lanzoui.com/b01co9m2b 密码:he2z
+
 【U】
 
 UnblockMusic：https://yoyodadada.lanzoui.com/b01aya7ad
@@ -441,6 +455,8 @@ YouTube_Vanced：https://yoyodadada.lanzoui.com/b07psqvc
 云视听小电视-TV版（哔哩哔哩官方TV版）：https://yoyodadada.lanzoui.com/b01bh3pgj
 
 有道云笔记：https://yoyodadada.lanzoui.com/b01bwl3cb
+
+柚子影视-TV版：https://yoyodadada.lanzoui.com/b01co9lra 密码:f5zp
 
 【Z】
 
