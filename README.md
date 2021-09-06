@@ -92,7 +92,7 @@ Bmap（白马地图）：https://yoyodadada.lanzoui.com/b01c13ojg 密码:ht7i
 
 百度网盘-PC版：https://yoyodadada.lanzoui.com/b01c539xe 密码:gx0l
 
-白菜追剧：https://yoyodadada.lanzoui.com/b01cj7euj 密码:er6s
+白菜追剧（兔子窝）：https://yoyodadada.lanzoui.com/b01cj7euj 密码:er6s
 
 百度网盘-TV版：https://yoyodadada.lanzoui.com/b01co9jpg 密码:f5rg
 
