@@ -58,6 +58,8 @@ AirPin-TV版：https://yoyodadada.lanzoui.com/b07pt2jc
 
 阿哥美剧：https://yoyodadada.lanzoui.com/b01co9qmf 密码:7i0g
 
+爱奇艺-PC版：https://yoyodadada.lanzoui.com/b01cp8omd 密码:ghf7
+
 【B】
 
 百度网盘：https://yoyodadada.lanzoui.com/b07pspid
