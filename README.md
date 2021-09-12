@@ -286,6 +286,8 @@ PanDownload-PC版：https://yoyodadada.lanzoui.com/b07pv69i
 
 PotPlayer-PC版：https://yoyodadada.lanzoui.com/b07rt7af
 
+Pure Tuber（绿油管，去广告解锁VIP）：https://yoyodadada.lanzoui.com/b01cpncxc 密码:5b47
+
 【Q】
 
 QQ音乐：https://yoyodadada.lanzoui.com/b07psr3a
