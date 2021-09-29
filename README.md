@@ -238,6 +238,8 @@ Instander（第三方Instagram）https://yoyodadada.lanzoui.com/b01c7ybcd 密码
 
 乐播投屏：https://yoyodadada.lanzoui.com/b01c6026d 密码:hqxi
 
+蓝云：https://yoyodadada.lanzouw.com/b01crl5gd 密码:emqv
+
 【M】
 
 美剧鸟：https://yoyodadada.lanzoui.com/b07pspni
