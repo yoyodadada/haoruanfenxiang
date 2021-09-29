@@ -134,6 +134,8 @@ CIBN聚体育-TV版：https://yoyodadada.lanzoui.com/b01co9mcb 密码:bmux
 
 大师兄影视：https://yoyodadada.lanzoui.com/b01caip6d 密码:e7mc
 
+大师兄影视-TV版：https://yoyodadada.lanzouw.com/b01crl4yf 密码:i6vd
+
 【E】
 
 儿歌多多：https://yoyodadada.lanzoui.com/b07pspsd
