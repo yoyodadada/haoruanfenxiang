@@ -474,7 +474,7 @@ YouTube_Vanced：https://yoyodadada.lanzoui.com/b07psqvc
 
 有道云笔记：https://yoyodadada.lanzoui.com/b01bwl3cb
 
-柚子影视-TV版：https://yoyodadada.lanzoui.com/b01co9lra 密码:f5zp
+柚子TV-TV版：https://yoyodadada.lanzoui.com/b01co9lra 密码:f5zp
 
 优酷视频-PC版：https://yoyodadada.lanzoui.com/b01cp8raj 密码:8gz6
 
