@@ -308,7 +308,7 @@ QQ轻聊版-PC版：https://yoyodadada.lanzoui.com/b07pv65e
 
 QQ：https://yoyodadada.lanzoui.com/b01b6ay1e （超过100MB的文件以txt文本形式分享下载链接）
 
-    https://zijieyunpan.com/4o1nE3ssDpJ 
+    v8.7.8、v8.8.28.6155版本apk下载地址：https://zijieyunpan.com/4o1nE3ssDpJ 
 
 QQ-PC版：https://yoyodadada.lanzoui.com/b01b7fkvg
 
@@ -408,15 +408,15 @@ WPS：https://yoyodadada.lanzoui.com/b07pspuf
 
 微信-PC版：https://yoyodadada.lanzoui.com/b01ban6ob （超过100MB的文件以txt文本形式分享下载链接）
 
-          https://zijieyunpan.com/UxpCk1F8h72
+          v3.3.0.55~v3.4.0.31版本压缩包下载地址：https://zijieyunpan.com/UxpCk1F8h72
           
-          https://www.123pan.com/s/JceA-EUfi 
+          v3.4.0.37以后版本压缩包下载地址：https://www.123pan.com/s/JceA-EUfi 
 
 卧龙影视：https://yoyodadada.lanzoui.com/b01bdfw2f
 
 WPS-PC版：https://yoyodadada.lanzoui.com/b01c3bwhc 密码:8fdh （超过100MB的文件以txt文本形式分享下载链接）
 
-          https://zijieyunpan.com/6XP5mgGDTaj
+          v11.1.0.10009教育专版、v11.8.2.10229博湖县政府版、v11.8.2.10393集成序列号版、v11.8.2.10912集成序列号版压缩包下载地址：https://zijieyunpan.com/6XP5mgGDTaj
 
 WinRAR-PC版：https://yoyodadada.lanzoui.com/b01cdgqih 密码:252n
 
@@ -454,7 +454,7 @@ X-Plore：https://yoyodadada.lanzoui.com/b07pt0hi
 
 小红书：https://yoyodadada.lanzoui.com/b01cahuri 密码:bk35 （超过100MB的文件以txt文本形式分享下载链接）
 
-       https://zijieyunpan.com/caxiLYYWEkG 
+       v6.92.0、6.94.0版apk下载地址：https://zijieyunpan.com/caxiLYYWEkG 
 
 讯飞语记：https://yoyodadada.lanzoui.com/b01co9qad 密码:et0k
 
