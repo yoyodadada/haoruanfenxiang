@@ -306,7 +306,8 @@ QQ音乐-PC版：https://yoyodadada.lanzoui.com/b07pv63c
 
 QQ轻聊版-PC版：https://yoyodadada.lanzoui.com/b07pv65e
 
-QQ：https://yoyodadada.lanzoui.com/b01b6ay1e （100MB以上文件下载地址：https://zijieyunpan.com/4o1nE3ssDpJ ）
+QQ：https://yoyodadada.lanzoui.com/b01b6ay1e （超过100MB的文件以txt文本形式分享下载链接）
+    https://zijieyunpan.com/4o1nE3ssDpJ 
 
 QQ-PC版：https://yoyodadada.lanzoui.com/b01b7fkvg
 
@@ -404,11 +405,14 @@ WPS：https://yoyodadada.lanzoui.com/b07pspuf
 
 我的听书：https://yoyodadada.lanzoui.com/b01b34a7c
 
-微信-PC版：https://yoyodadada.lanzoui.com/b01ban6ob （100MB以上文件下载地址：https://zijieyunpan.com/UxpCk1F8h72 ）
+微信-PC版：https://yoyodadada.lanzoui.com/b01ban6ob （超过100MB的文件以txt文本形式分享下载链接）
+          https://zijieyunpan.com/UxpCk1F8h72
+          https://www.123pan.com/s/JceA-EUfi 
 
 卧龙影视：https://yoyodadada.lanzoui.com/b01bdfw2f
 
-WPS-PC版：https://yoyodadada.lanzoui.com/b01c3bwhc 密码:8fdh （100MB以上文件下载地址：https://zijieyunpan.com/6XP5mgGDTaj ）
+WPS-PC版：https://yoyodadada.lanzoui.com/b01c3bwhc 密码:8fdh （超过100MB的文件以txt文本形式分享下载链接）
+          https://zijieyunpan.com/6XP5mgGDTaj
 
 WinRAR-PC版：https://yoyodadada.lanzoui.com/b01cdgqih 密码:252n
 
@@ -444,7 +448,8 @@ X-Plore：https://yoyodadada.lanzoui.com/b07pt0hi
 
 小書视界：https://yoyodadada.lanzoui.com/b01bxc0kd
 
-小红书：https://yoyodadada.lanzoui.com/b01cahuri 密码:bk35 （100MB以上文件下载地址：https://zijieyunpan.com/caxiLYYWEkG ）
+小红书：https://yoyodadada.lanzoui.com/b01cahuri 密码:bk35 （超过100MB的文件以txt文本形式分享下载链接）
+       https://zijieyunpan.com/caxiLYYWEkG 
 
 讯飞语记：https://yoyodadada.lanzoui.com/b01co9qad 密码:et0k
 
