@@ -65,6 +65,7 @@ AirPin-TV版：https://yoyodadada.lanzoui.com/b07pt2jc
 【B】
 
 百度网盘：https://yoyodadada.lanzoui.com/b07pspid
+
     v11.4.5三星Galaxy S21+提取版、v11.11.11下载地址：https://zijieyunpan.com/6No033RJMU1
 
 哔哩哔哩：https://yoyodadada.lanzoui.com/b07pspyj
@@ -90,6 +91,7 @@ AirPin-TV版：https://yoyodadada.lanzoui.com/b07pt2jc
 百度输入法：https://yoyodadada.lanzoui.com/b01byu8bg
 
 B612咔叽：https://yoyodadada.lanzoui.com/b01bzf7oj 密码:6h71
+
     v10.3.3~v10.3.6下载地址：https://zijieyunpan.com/96vYPO4XanJ
 
 Bmap（白马地图）：https://yoyodadada.lanzoui.com/b01c13ojg 密码:ht7i
@@ -227,6 +229,7 @@ Instander（第三方Instagram）https://yoyodadada.lanzoui.com/b01c7ybcd 密码
 快图浏览：https://yoyodadada.lanzoui.com/b07pt0yf
 
 酷我音乐：https://yoyodadada.lanzoui.com/b07ryhlg
+
     v9.5.0.0、v9.5.0.1下载地址：https://zijieyunpan.com/RtA2Xy4oVVr
     v9.5.0.2以后版本下载地址：https://www.123pan.com/s/JceA-kUfi 
 
@@ -353,6 +356,7 @@ SpeedPan-PC版：https://yoyodadada.lanzoui.com/b07qbfze
 【T】
 
 腾讯视频：https://yoyodadada.lanzoui.com/b07psoqf
+
     v8.4.35.26336下载地址：https://zijieyunpan.com/0YuFXfFHoFQ
 
 腾讯视频极速版：https://yoyodadada.lanzoui.com/b07psqde
@@ -390,6 +394,7 @@ Village：https://yoyodadada.lanzoui.com/b07skzmh
 【W】
 
 wifi万能钥匙：https://yoyodadada.lanzoui.com/b07pspej
+
     v4.6.62下载地址：https://zijieyunpan.com/2vM55dN5eHC
 
 网易公开课：https://yoyodadada.lanzoui.com/b07psphc
@@ -411,6 +416,7 @@ WPS：https://yoyodadada.lanzoui.com/b07pspuf
 微软.NET离线运行库合集-PC版：https://yoyodadada.lanzoui.com/b07pycbe
 
 微软DirectX9.0c最终用户运行库-PC版：https://yoyodadada.lanzoui.com/b07pycdg
+
     DirectX修复工具v4.0.0.35152增强版下载地址：https://zijieyunpan.com/EvMFQWWeVKW
 
 我的听书：https://yoyodadada.lanzoui.com/b01b34a7c
@@ -506,7 +512,7 @@ YouTube_Vanced：https://yoyodadada.lanzoui.com/b07psqvc
 
 【未归类、合集】（一些未按应用名称首字母归类的比较好用的软件）
 
-https://yoyodadada.lanzoui.com/b01b01h9a
+未归类：https://yoyodadada.lanzoui.com/b01b01h9a
 
 口罩相关标准（针对2019年新冠疫情）：https://yoyodadada.lanzoui.com/b01b77bdg
 
