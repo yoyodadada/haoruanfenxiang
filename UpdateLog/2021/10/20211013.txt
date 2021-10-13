@@ -1,0 +1,11 @@
+20211013更新内容：
+1.新增合集OCR文字识别，内含离线OCR、天若OCR开源本地版v1.2.5、天若OCR文字识别V4.48、天若OCR文字识别V5.0.0及天若OCR文字识别-自建百度OCR接口教程。
+2.ADM更新v12.6.3-mobilism破解高级版。
+3.激活工具类更新HEU_KMS_Activator_v24.4.0。
+4.微软常用运行库合集-PC版更新VisualCppRedist_AIO_x86_x64_54@abbodi1406整合版。
+5.WPS更新v15.1.1@GhostRider破解高级版。
+6.XMind更新v1.8.6@小叶夕阳破解会员版。
+7.酷我音乐更新v9.5.0.2@黑鹰破解会员版。
+8.QQ-PC版更新v9.5.1.27888@zd423绿色纯净版。
+下载地址：https://yoyodadada.lanzoui.com/u/yoyodadada
+软件列表：https://github.com/yoyodadada/haoruanfenxiang
