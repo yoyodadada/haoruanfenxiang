@@ -518,3 +518,5 @@ TV、盒子端应用：https://yoyodadada.lanzoui.com/b01bwl23g
 PC端应用：https://yoyodadada.lanzoui.com/b01c63npg 密码:er0q
 
 考试类应用：https://yoyodadada.lanzoui.com/b01cdh9qj 密码:c80i
+
+OCR文字识别：https://yoyodadada.lanzouw.com/b01csyvfc 密码:7t2l
