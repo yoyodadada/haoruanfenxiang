@@ -65,6 +65,7 @@ AirPin-TV版：https://yoyodadada.lanzoui.com/b07pt2jc
 【B】
 
 百度网盘：https://yoyodadada.lanzoui.com/b07pspid
+    v11.4.5三星Galaxy S21+提取版、v11.11.11下载地址：https://zijieyunpan.com/6No033RJMU1
 
 哔哩哔哩：https://yoyodadada.lanzoui.com/b07pspyj
 
@@ -89,6 +90,7 @@ AirPin-TV版：https://yoyodadada.lanzoui.com/b07pt2jc
 百度输入法：https://yoyodadada.lanzoui.com/b01byu8bg
 
 B612咔叽：https://yoyodadada.lanzoui.com/b01bzf7oj 密码:6h71
+    v10.3.3~v10.3.6下载地址：https://zijieyunpan.com/96vYPO4XanJ
 
 Bmap（白马地图）：https://yoyodadada.lanzoui.com/b01c13ojg 密码:ht7i
 
@@ -225,6 +227,8 @@ Instander（第三方Instagram）https://yoyodadada.lanzoui.com/b01c7ybcd 密码
 快图浏览：https://yoyodadada.lanzoui.com/b07pt0yf
 
 酷我音乐：https://yoyodadada.lanzoui.com/b07ryhlg
+    v9.5.0.0、v9.5.0.1下载地址：https://zijieyunpan.com/RtA2Xy4oVVr
+    v9.5.0.2以后版本下载地址：https://www.123pan.com/s/JceA-kUfi 
 
 酷我音乐-PC版：https://yoyodadada.lanzoui.com/b01ay4hkh
 
@@ -310,7 +314,7 @@ QQ轻聊版-PC版：https://yoyodadada.lanzoui.com/b07pv65e
 
 QQ：https://yoyodadada.lanzoui.com/b01b6ay1e （超过100MB的文件以txt文本形式分享下载链接）
 
-    v8.7.8、v8.8.28.6155版本apk下载地址：https://zijieyunpan.com/4o1nE3ssDpJ 
+    v8.7.8、v8.8.28.6155下载地址：https://zijieyunpan.com/4o1nE3ssDpJ 
 
 QQ-PC版：https://yoyodadada.lanzoui.com/b01b7fkvg
 
@@ -349,6 +353,7 @@ SpeedPan-PC版：https://yoyodadada.lanzoui.com/b07qbfze
 【T】
 
 腾讯视频：https://yoyodadada.lanzoui.com/b07psoqf
+    v8.4.35.26336下载地址：https://zijieyunpan.com/0YuFXfFHoFQ
 
 腾讯视频极速版：https://yoyodadada.lanzoui.com/b07psqde
 
@@ -385,6 +390,7 @@ Village：https://yoyodadada.lanzoui.com/b07skzmh
 【W】
 
 wifi万能钥匙：https://yoyodadada.lanzoui.com/b07pspej
+    v4.6.62下载地址：https://zijieyunpan.com/2vM55dN5eHC
 
 网易公开课：https://yoyodadada.lanzoui.com/b07psphc
 
@@ -405,19 +411,20 @@ WPS：https://yoyodadada.lanzoui.com/b07pspuf
 微软.NET离线运行库合集-PC版：https://yoyodadada.lanzoui.com/b07pycbe
 
 微软DirectX9.0c最终用户运行库-PC版：https://yoyodadada.lanzoui.com/b07pycdg
+    DirectX修复工具v4.0.0.35152增强版下载地址：https://zijieyunpan.com/EvMFQWWeVKW
 
 我的听书：https://yoyodadada.lanzoui.com/b01b34a7c
 
 微信-PC版：https://yoyodadada.lanzoui.com/b01ban6ob （超过100MB的文件以txt文本形式分享下载链接）
 
-    v3.3.0.55~v3.4.0.31版本压缩包下载地址：https://zijieyunpan.com/UxpCk1F8h72
-    v3.4.0.37以后版本压缩包下载地址：https://www.123pan.com/s/JceA-EUfi 
+    v3.3.0.55~v3.4.0.31下载地址：https://zijieyunpan.com/UxpCk1F8h72
+    v3.4.0.37以后版本下载地址：https://www.123pan.com/s/JceA-EUfi 
 
 卧龙影视：https://yoyodadada.lanzoui.com/b01bdfw2f
 
 WPS-PC版：https://yoyodadada.lanzoui.com/b01c3bwhc 密码:8fdh （超过100MB的文件以txt文本形式分享下载链接）
 
-    v11.1.0.10009教育专版、v11.8.2.10229博湖县政府版、v11.8.2.10393集成序列号版、v11.8.2.10912集成序列号版压缩包下载地址：https://zijieyunpan.com/6XP5mgGDTaj
+    v11.1.0.10009教育专版、v11.8.2.10229博湖县政府版、v11.8.2.10393集成序列号版、v11.8.2.10912集成序列号版下载地址：https://zijieyunpan.com/6XP5mgGDTaj
 
 WinRAR-PC版：https://yoyodadada.lanzoui.com/b01cdgqih 密码:252n
 
@@ -455,7 +462,7 @@ X-Plore：https://yoyodadada.lanzoui.com/b07pt0hi
 
 小红书：https://yoyodadada.lanzoui.com/b01cahuri 密码:bk35 （超过100MB的文件以txt文本形式分享下载链接）
 
-    v6.92.0、6.94.0版apk下载地址：https://zijieyunpan.com/caxiLYYWEkG 
+    v6.92.0、6.94.0下载地址：https://zijieyunpan.com/caxiLYYWEkG 
 
 讯飞语记：https://yoyodadada.lanzoui.com/b01co9qad 密码:et0k
 
