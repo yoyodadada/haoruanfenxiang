@@ -212,7 +212,8 @@ Instander（第三方Instagram）https://yoyodadada.lanzoui.com/b01c7ybcd 密码
 蓝云：https://yoyodadada.lanzouw.com/b01crl5gd 密码:emqv
 
 雷电模拟器-PC版：https://yoyodadada.lanzouw.com/b01ctft0h 密码:esp8 （包含全部版本，超过100MB的以txt形式分享下载链接，源文件下载链接在下端。）（基本上所有文件均大于100MB了）
-     v4.0.56.0及以后版本下载地址：https://www.123pan.com/s/JceA-pUfi 
+
+    v4.0.56.0及以后版本下载地址：https://www.123pan.com/s/JceA-pUfi 
 
 【M】
 
