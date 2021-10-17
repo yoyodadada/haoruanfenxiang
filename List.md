@@ -253,7 +253,7 @@ PrintHand：https://yoyodadada.lanzoui.com/b07pspwh
 
 PrintShare：https://yoyodadada.lanzoui.com/b07psq2d
 
-PanDownload：https://yoyodadada.lanzoui.com/b07psqcd
+PanDownload（超级度盘）：https://yoyodadada.lanzoui.com/b07psqcd
 
 PowerClean：https://yoyodadada.lanzoui.com/b07pt0vc
 
