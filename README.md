@@ -10,15 +10,15 @@ Gitee：https://gitee.com/realyoyodadada/haoruanfenxiang
 
 注1：手机浏览器看不到软件列表的，点下面那个“View all of README.md”
 
-【网盘主页】（按更新倒序排列）：
+【网盘主页】下载地址（蓝奏）（按更新时间倒序排列）：
 
 https://yoyodadada.lanzoui.com/u/yoyodadada
 
-针对指定软件见【软件列表】：
+【软件列表】（按软件首字母归类）：
 
 https://github.com/yoyodadada/haoruanfenxiang/blob/master/List.md
 
-国内镜像【软件列表】链接为：
+【软件列表】国内镜像链接为：
 
 https://gitee.com/realyoyodadada/haoruanfenxiang/blob/master/List.md
 
