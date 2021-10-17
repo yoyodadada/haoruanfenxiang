@@ -3,6 +3,7 @@
 ## 国内镜像：
 
 不能科学上网的，可以浏览国内镜像，每次更新后会同步。
+
 Gitee：https://gitee.com/realyoyodadada/haoruanfenxiang
 
 ## 下载地址：
@@ -16,6 +17,10 @@ https://yoyodadada.lanzoui.com/u/yoyodadada
 针对指定软件见【软件列表】：
 
 https://github.com/yoyodadada/haoruanfenxiang/blob/master/List.md
+
+国内镜像【软件列表】链接为：
+
+https://gitee.com/realyoyodadada/haoruanfenxiang/blob/master/List.md
 
 注2：本页发布的资源均为公开版，内部资源请加入Telegram频道或群组。
 
