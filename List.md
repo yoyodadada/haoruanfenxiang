@@ -381,6 +381,8 @@ WPS：https://yoyodadada.lanzoui.com/b07pspuf
 
 微软.NET离线运行库合集-PC版：https://yoyodadada.lanzoui.com/b07pycbe
 
+    2021.10.15及以后版本下载地址：https://www.123pan.com/s/JceA-wUfi 
+
 微软DirectX9.0c最终用户运行库-PC版：https://yoyodadada.lanzoui.com/b07pycdg （包含全部版本，超过100MB的以txt形式分享下载链接，源文件下载链接在下端。）
 
     DirectX修复工具v4.0.0.35152增强版下载地址：https://zijieyunpan.com/EvMFQWWeVKW
