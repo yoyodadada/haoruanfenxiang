@@ -2,7 +2,7 @@
 
 ## 国内镜像：
 
-不能科学上网的，可以浏览国内镜像，每次更新后会同步。
+不能正常浏览的，可以浏览国内镜像，每次更新后会同步。
 
 Gitee：https://gitee.com/realyoyodadada/haoruanfenxiang
 
