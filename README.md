@@ -14,11 +14,11 @@ Gitee：https://gitee.com/realyoyodadada/haoruanfenxiang
 
 https://yoyodadada.lanzoui.com/u/yoyodadada
 
-【软件列表】（按软件首字母归类）：
+【软件列表】GitHub（按软件首字母归类）：
 
 https://github.com/yoyodadada/haoruanfenxiang/blob/master/List.md
 
-【软件列表】国内镜像链接为：
+【软件列表】Gitee国内镜像：
 
 https://gitee.com/realyoyodadada/haoruanfenxiang/blob/master/List.md
 
