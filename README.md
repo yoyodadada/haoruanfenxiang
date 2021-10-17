@@ -1,5 +1,10 @@
 # 好软分享
 
+## 国内镜像：
+
+不能科学上网的，可以浏览国内镜像，每次更新后会同步。
+Gitee：https://gitee.com/realyoyodadada/haoruanfenxiang
+
 ## 下载地址：
 
 注1：手机浏览器看不到软件列表的，点下面那个“View all of README.md”
