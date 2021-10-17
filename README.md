@@ -14,7 +14,7 @@ Gitee：https://gitee.com/realyoyodadada/haoruanfenxiang
 
 https://yoyodadada.lanzoui.com/u/yoyodadada
 
-【软件列表】GitHub（按软件首字母归类）：
+【软件列表】GitHub（按软件名首字母归类）：
 
 https://github.com/yoyodadada/haoruanfenxiang/blob/master/List.md
 
