@@ -6,11 +6,13 @@
 
 Gitee：https://gitee.com/realyoyodadada/haoruanfenxiang
 
-## 下载地址&软件列表：
+## 下载地址：
 
 【网盘主页】下载地址（蓝奏）（按更新时间倒序排列）：
 
 https://yoyodadada.lanzoui.com/u/yoyodadada
+
+## 软件列表：
 
 【软件列表】GitHub（按软件名首字母归类）：
 
@@ -19,14 +21,6 @@ https://github.com/yoyodadada/haoruanfenxiang/blob/master/List.md
 【软件列表】Gitee国内镜像：
 
 https://gitee.com/realyoyodadada/haoruanfenxiang/blob/master/List.md
-
-注1：手机浏览器看不到软件列表的，点下面那个“View all of README.md”
-
-注2：本页发布的资源均为公开版，内部资源请加入Telegram频道或群组。
-
-注3：蓝奏网页打不开的，把lanzous替换成lanzoui或者lanzoux或者lanzouw就可以了。
-
-注4：蓝奏链接里的版本是最全的，因为蓝奏文件大小限制问题，最大只能分享100MB的文件，超过100MB的，我会转到字节网盘或者123云盘分享，并将分享链接以txt形式分享在蓝奏盘里。
 
 ## 说明：
 
@@ -37,6 +31,12 @@ https://gitee.com/realyoyodadada/haoruanfenxiang/blob/master/List.md
 Telegram频道（推荐加入！用于发布资源，经常发布内部资源）：https://t.me/haoruanfenxiang
 
 Telegram群组（推荐加入！聊天吹水不开车，频道内容自动转发到群组）：https://t.me/haoruanfenxianggroup
+
+注1：本页发布的资源均为公开版，内部资源请加入Telegram频道或群组。
+
+注2：蓝奏网页打不开的，把lanzous替换成lanzoui或者lanzoux或者lanzouw就可以了。
+
+注3：蓝奏链接里的版本是最全的，因为蓝奏文件大小限制问题，最大只能分享100MB的文件，超过100MB的，我会转到字节网盘或者123云盘分享，并将分享链接以txt形式分享在蓝奏盘里。
 
 ## 版权声明：
 
