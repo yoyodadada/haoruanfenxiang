@@ -8,8 +8,6 @@ Gitee：https://gitee.com/realyoyodadada/haoruanfenxiang
 
 ## 下载地址：
 
-注1：手机浏览器看不到软件列表的，点下面那个“View all of README.md”
-
 【网盘主页】下载地址（蓝奏）（按更新时间倒序排列）：
 
 https://yoyodadada.lanzoui.com/u/yoyodadada
@@ -20,7 +18,9 @@ https://github.com/yoyodadada/haoruanfenxiang/blob/master/List.md
 
 【软件列表】Gitee国内镜像：
 
-https://gitee.com/realyoyodadada/haoruanfenxiang/blob/master/List.md
+https://gitee.com/realyoyodadada/haoruanfenxiang/blob/master/List.
+
+注1：手机浏览器看不到软件列表的，点下面那个“View all of README.md”
 
 注2：本页发布的资源均为公开版，内部资源请加入Telegram频道或群组。
 
