@@ -18,7 +18,7 @@ https://github.com/yoyodadada/haoruanfenxiang/blob/master/List.md
 
 【软件列表】Gitee国内镜像：
 
-https://gitee.com/realyoyodadada/haoruanfenxiang/blob/master/List.
+https://gitee.com/realyoyodadada/haoruanfenxiang/blob/master/List.md
 
 注1：手机浏览器看不到软件列表的，点下面那个“View all of README.md”
 
