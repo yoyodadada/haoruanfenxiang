@@ -6,7 +6,7 @@
 
 Gitee：https://gitee.com/realyoyodadada/haoruanfenxiang
 
-## 下载地址：
+## 下载地址&软件列表：
 
 【网盘主页】下载地址（蓝奏）（按更新时间倒序排列）：
 
