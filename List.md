@@ -124,7 +124,9 @@ Flash_Player-PC版：https://yoyodadada.lanzoui.com/b01c5zykd 密码:cd0n
 
 【G】
 
-高德地图：https://yoyodadada.lanzoui.com/b07psqne
+高德地图：https://yoyodadada.lanzoui.com/b07psqne （包含全部版本，超过100MB的以txt形式分享下载链接，源文件下载链接在下端。）
+
+    超过100MB文件下载地址：https://www.123pan.com/s/JceA-CUfi 
 
 格式工厂-PC版：https://yoyodadada.lanzoui.com/b01c4aymj 密码:5b45
 
