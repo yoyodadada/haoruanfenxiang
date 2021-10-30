@@ -66,6 +66,8 @@ Bmap（白马地图）：https://yoyodadada.lanzoui.com/b01c13ojg 密码:ht7i
 
 百度网盘-TV版：https://yoyodadada.lanzoui.com/b01co9jpg 密码:f5rg
 
+波澜投屏-TV版：https://yoyodadada.lanzouw.com/b01cus5na 密码:ax2k
+
 【C】
 
 Calc_Business（卡西欧科学计算器）：https://yoyodadada.lanzoui.com/b07psqyf
