@@ -6,7 +6,7 @@
 
 注2：按软件名首字母归类。
 
-【A】
+## 【A】
 
 APKPure：https://yoyodadada.lanzoui.com/b07psq9a
 
@@ -24,7 +24,7 @@ AirPin-TV版：https://yoyodadada.lanzoui.com/b07pt2jc
 
 爱奇艺-PC版：https://yoyodadada.lanzoui.com/b01cp8omd 密码:ghf7
 
-【B】
+## 【B】
 
 百度网盘：https://yoyodadada.lanzoui.com/b07pspid （包含全部版本，超过100MB的以txt形式分享下载链接，源文件下载链接在下端。）
 
@@ -68,7 +68,7 @@ Bmap（白马地图）：https://yoyodadada.lanzoui.com/b01c13ojg 密码:ht7i
 
 波澜投屏-TV版：https://yoyodadada.lanzouw.com/b01cus5na 密码:ax2k
 
-【C】
+## 【C】
 
 Calc_Business（卡西欧科学计算器）：https://yoyodadada.lanzoui.com/b07psqyf
 
@@ -90,7 +90,7 @@ CIBN酷喵影视-TV版：https://yoyodadada.lanzoui.com/b01b01k6f
 
 CIBN聚体育-TV版：https://yoyodadada.lanzoui.com/b01co9mcb 密码:bmux
 
-【D】
+## 【D】
 
 电视猫-TV版：https://yoyodadada.lanzoui.com/b07pt2dg
 
@@ -106,7 +106,7 @@ CIBN聚体育-TV版：https://yoyodadada.lanzoui.com/b01co9mcb 密码:bmux
 
 大师兄影视-TV版：https://yoyodadada.lanzouw.com/b01crl4yf 密码:i6vd
 
-【E】
+## 【E】
 
 儿歌多多：https://yoyodadada.lanzoui.com/b07pspsd
 
@@ -114,7 +114,7 @@ Everything-PC版：https://yoyodadada.lanzoui.com/b01b8a84d
 
 2345看图王-PC版：https://yoyodadada.lanzoui.com/b01bsrbnc
 
-【F】
+## 【F】
 
 Fancast：https://yoyodadada.lanzoui.com/b07pspxi
 
@@ -122,7 +122,7 @@ Fancast：https://yoyodadada.lanzoui.com/b07pspxi
 
 Flash_Player-PC版：https://yoyodadada.lanzoui.com/b01c5zykd 密码:cd0n
 
-【G】
+## 【G】
 
 高德地图：https://yoyodadada.lanzoui.com/b07psqne （包含全部版本，超过100MB的以txt形式分享下载链接，源文件下载链接在下端。）
 
@@ -130,7 +130,7 @@ Flash_Player-PC版：https://yoyodadada.lanzoui.com/b01c5zykd 密码:cd0n
 
 格式工厂-PC版：https://yoyodadada.lanzoui.com/b01c4aymj 密码:5b45
 
-【H】
+## 【H】
 
 海星模拟器：https://yoyodadada.lanzoui.com/b07psppa
 
@@ -156,7 +156,7 @@ HDP直播-TV版：https://yoyodadada.lanzoui.com/b07qdysd
 
 红影TV-TV版：https://yoyodadada.lanzoui.com/b01co9kuh 密码:f235
 
-【I】
+## 【I】
 
 Instagram：https://yoyodadada.lanzoui.com/b07psope
 
@@ -172,7 +172,7 @@ IDM-PC版：https://yoyodadada.lanzoui.com/b01c4az3g 密码:4v3k
 
 Instander（第三方Instagram）https://yoyodadada.lanzoui.com/b01c7ybcd 密码:e3lv
 
-【J】
+## 【J】
 
 今日头条：https://yoyodadada.lanzoui.com/b07pspfa
 
@@ -188,7 +188,7 @@ Instander（第三方Instagram）https://yoyodadada.lanzoui.com/b01c7ybcd 密码
 
 极光影院：https://yoyodadada.lanzoui.com/b01co9puh 密码:f43v
 
-【K】
+## 【K】
 
 快点投屏：https://yoyodadada.lanzoui.com/b07psqqh
 
@@ -203,7 +203,7 @@ Instander（第三方Instagram）https://yoyodadada.lanzoui.com/b01c7ybcd 密码
 
 酷我畅听：https://yoyodadada.lanzoui.com/b01c07vbi 密码:d78r
 
-【L】
+## 【L】
 
 乐播：https://yoyodadada.lanzoui.com/b07psqbc
 
@@ -219,7 +219,7 @@ Instander（第三方Instagram）https://yoyodadada.lanzoui.com/b01c7ybcd 密码
 
     v4.0.56.0及以后版本下载地址：https://www.123pan.com/s/JceA-pUfi 
 
-【M】
+## 【M】
 
 美剧鸟：https://yoyodadada.lanzoui.com/b07pspni
 
@@ -245,7 +245,7 @@ microG：https://yoyodadada.lanzoui.com/b07pstla
 
 猫影视TV-TV版：https://yoyodadada.lanzouw.com/b01crl5kh 密码:3u62
 
-【N】
+## 【N】
 
 南瓜影视：https://yoyodadada.lanzoui.com/b07vzgfe
 
@@ -253,7 +253,7 @@ microG：https://yoyodadada.lanzoui.com/b07pstla
 
 奈菲影视：https://yoyodadada.lanzoui.com/b01ciguoh 密码:elsb
 
-【P】
+## 【P】
 
 葡萄影视：https://yoyodadada.lanzoui.com/b07pspch
 
@@ -273,7 +273,7 @@ PotPlayer-PC版：https://yoyodadada.lanzoui.com/b07rt7af
 
 Pure Tuber（绿油管，去广告解锁VIP）：https://yoyodadada.lanzoui.com/b01cpncxc 密码:5b47
 
-【Q】
+## 【Q】
 
 QQ音乐：https://yoyodadada.lanzoui.com/b07psr3a
 
@@ -295,7 +295,7 @@ QQ-PC版：https://yoyodadada.lanzoui.com/b01b7fkvg
 
 清浊：https://yoyodadada.lanzoui.com/b01ca6r5c 密码:f1pr
 
-【R】
+## 【R】
 
 日期计算器-PC版：https://yoyodadada.lanzoui.com/b07pv60j
 
@@ -303,7 +303,7 @@ rufus-PC版：https://yoyodadada.lanzoui.com/b07rx88d
 
 人人视频：https://yoyodadada.lanzoui.com/b01bh2x6b
 
-【S】
+## 【S】
 
 SpeedTest：https://yoyodadada.lanzoui.com/b07psq6h
 
@@ -323,7 +323,7 @@ SpeedPan-PC版：https://yoyodadada.lanzoui.com/b07qbfze
 
 搜书大师：https://yoyodadada.lanzoui.com/b01b8a87g
 
-【T】
+## 【T】
 
 腾讯视频：https://yoyodadada.lanzoui.com/b07psoqf （包含全部版本，超过100MB的以txt形式分享下载链接，源文件下载链接在下端。）
 
@@ -349,11 +349,11 @@ TV影院-TV版：https://yoyodadada.lanzoui.com/b01c4pi6h 密码:al8e
 
 泰捷视频-TV版：https://yoyodadada.lanzoui.com/b01co9m2b 密码:he2z
 
-【U】
+## 【U】
 
 UnblockMusic：https://yoyodadada.lanzoui.com/b01aya7ad
 
-【V】
+## 【V】
 
 VSCO：https://yoyodadada.lanzoui.com/b07psq7i
 
@@ -361,7 +361,7 @@ ViPER4Android_FX：https://yoyodadada.lanzoui.com/b07qdymh
 
 Village：https://yoyodadada.lanzoui.com/b07skzmh
 
-【W】
+## 【W】
 
 wifi万能钥匙：https://yoyodadada.lanzoui.com/b07pspej （包含全部版本，超过100MB的以txt形式分享下载链接，源文件下载链接在下端。）
 
@@ -411,7 +411,7 @@ WinRAR-PC版：https://yoyodadada.lanzoui.com/b01cdgqih 密码:252n
 
 555电影：https://yoyodadada.lanzoui.com/b01ce1faj 密码:8txx
 
-【X】
+## 【X】
 
 香哈菜谱：https://yoyodadada.lanzoui.com/b07psouj
 
@@ -447,7 +447,7 @@ X-Plore：https://yoyodadada.lanzoui.com/b07pt0hi
 
 讯飞语记：https://yoyodadada.lanzoui.com/b01co9qad 密码:et0k
 
-【Y】
+## 【Y】
 
 影迷大院：https://yoyodadada.lanzoui.com/b07psplg
 
@@ -477,7 +477,7 @@ YouTube_Vanced：https://yoyodadada.lanzoui.com/b07psqvc
 
 优酷视频-PC版：https://yoyodadada.lanzoui.com/b01cp8raj 密码:8gz6
 
-【Z】
+## 【Z】
 
 支付宝：https://yoyodadada.lanzoui.com/b07psrmj
 
@@ -485,7 +485,9 @@ YouTube_Vanced：https://yoyodadada.lanzoui.com/b07psqvc
 
 资源猫：https://yoyodadada.lanzoui.com/b01bxc2yj
 
-【未归类、合集】（一些未按应用名称首字母归类的比较好用的软件）
+## 【未归类、合集】
+
+（一些未按应用名称首字母归类的比较好用的软件）
 
 未归类：https://yoyodadada.lanzoui.com/b01b01h9a
 
