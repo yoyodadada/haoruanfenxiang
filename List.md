@@ -188,6 +188,8 @@ Instander（第三方Instagram）https://yoyodadada.lanzoui.com/b01c7ybcd 密码
 
 极光影院：https://yoyodadada.lanzoui.com/b01co9puh 密码:f43v
 
+今日影视-TV版：https://yoyodadada.lanzouw.com/b01cvj0dc 密码:ht3r
+
 ## 【K】
 
 快点投屏：https://yoyodadada.lanzoui.com/b07psqqh
