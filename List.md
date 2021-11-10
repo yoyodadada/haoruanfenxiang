@@ -55,6 +55,7 @@ AirPin-TV版：https://yoyodadada.lanzoui.com/b07pt2jc
 B612咔叽：https://yoyodadada.lanzoui.com/b01bzf7oj 密码:6h71 （包含全部版本，超过100MB的以txt形式分享下载链接，源文件下载链接在下端。）
 
     v10.3.3~v10.3.6下载地址：https://zijieyunpan.com/96vYPO4XanJ
+    v10.3.8以后版本下载地址：https://www.123pan.com/s/JceA-UUfi 
 
 Bmap（白马地图）：https://yoyodadada.lanzoui.com/b01c13ojg 密码:ht7i
 
