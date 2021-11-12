@@ -262,7 +262,7 @@ microG：https://yoyodadada.lanzoui.com/b07pstla
 
 PrintHand：https://yoyodadada.lanzoui.com/b07pspwh
 
-PrintShare：https://yoyodadada.lanzoui.com/b07psq2d
+PrinterShare：https://yoyodadada.lanzoui.com/b07psq2d
 
 PanDownload（超级度盘）：https://yoyodadada.lanzoui.com/b07psqcd
 
