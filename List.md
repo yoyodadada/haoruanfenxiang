@@ -18,11 +18,11 @@ AirPin-TV版：https://yoyodadada.lanzoui.com/b07pt2jc
 
 爱奇艺极速版：https://yoyodadada.lanzoui.com/b01ay6tbc
 
-安卓清理君：https://yoyodadada.lanzoui.com/b01cl811a 密码:eb3x
+安卓清理君：https://yoyodadada.lanzoui.com/b01cl811a#eb3x 密码:eb3x
 
-阿哥美剧：https://yoyodadada.lanzoui.com/b01co9qmf 密码:7i0g
+阿哥美剧：https://yoyodadada.lanzoui.com/b01co9qmf#7i0g 密码:7i0g
 
-爱奇艺-PC版：https://yoyodadada.lanzoui.com/b01cp8omd 密码:ghf7
+爱奇艺-PC版：https://yoyodadada.lanzoui.com/b01cp8omd#ghf7 密码:ghf7
 
 ## 【B】
 
@@ -52,22 +52,22 @@ AirPin-TV版：https://yoyodadada.lanzoui.com/b07pt2jc
 
 百度输入法：https://yoyodadada.lanzoui.com/b01byu8bg
 
-B612咔叽：https://yoyodadada.lanzoui.com/b01bzf7oj 密码:6h71 （包含全部版本，超过100MB的以txt形式分享下载链接，源文件下载链接在下端。）
+B612咔叽：https://yoyodadada.lanzoui.com/b01bzf7oj#6h71 密码:6h71 （包含全部版本，超过100MB的以txt形式分享下载链接，源文件下载链接在下端。）
 
     v10.3.3~v10.3.6下载地址：https://zijieyunpan.com/96vYPO4XanJ
     v10.3.8以后版本下载地址：https://www.123pan.com/s/JceA-UUfi 
 
-Bmap（白马地图）：https://yoyodadada.lanzoui.com/b01c13ojg 密码:ht7i
+Bmap（白马地图）：https://yoyodadada.lanzoui.com/b01c13ojg#ht7i 密码:ht7i
 
-宝宝巴士：https://yoyodadada.lanzoui.com/b01c1saha 密码:gcme
+宝宝巴士：https://yoyodadada.lanzoui.com/b01c1saha#gcme 密码:gcme
 
-百度网盘-PC版：https://yoyodadada.lanzoui.com/b01c539xe 密码:gx0l
+百度网盘-PC版：https://yoyodadada.lanzoui.com/b01c539xe#gx0l 密码:gx0l
 
-白菜追剧（兔子窝）：https://yoyodadada.lanzoui.com/b01cj7euj 密码:er6s
+白菜追剧（兔子窝）：https://yoyodadada.lanzoui.com/b01cj7euj#er6s 密码:er6s
 
-百度网盘-TV版：https://yoyodadada.lanzoui.com/b01co9jpg 密码:f5rg
+百度网盘-TV版：https://yoyodadada.lanzoui.com/b01co9jpg#f5rg 密码:f5rg
 
-波澜投屏-TV版：https://yoyodadada.lanzouw.com/b01cus5na 密码:ax2k
+波澜投屏-TV版：https://yoyodadada.lanzouw.com/b01cus5na#ax2k 密码:ax2k
 
 ## 【C】
 
@@ -89,7 +89,7 @@ CAD快速看图-PC版：https://yoyodadada.lanzoui.com/b07pv6ji
 
 CIBN酷喵影视-TV版：https://yoyodadada.lanzoui.com/b01b01k6f
 
-CIBN聚体育-TV版：https://yoyodadada.lanzoui.com/b01co9mcb 密码:bmux
+CIBN聚体育-TV版：https://yoyodadada.lanzoui.com/b01co9mcb#bmux 密码:bmux
 
 ## 【D】
 
@@ -103,9 +103,9 @@ CIBN聚体育-TV版：https://yoyodadada.lanzoui.com/b01co9mcb 密码:bmux
 
 豆瓣：https://yoyodadada.lanzoui.com/b01bh2tab
 
-大师兄影视：https://yoyodadada.lanzoui.com/b01caip6d 密码:e7mc
+大师兄影视：https://yoyodadada.lanzoui.com/b01caip6d#e7mc 密码:e7mc
 
-大师兄影视-TV版：https://yoyodadada.lanzouw.com/b01crl4yf 密码:i6vd
+大师兄影视-TV版：https://yoyodadada.lanzouw.com/b01crl4yf#i6vd 密码:i6vd
 
 ## 【E】
 
@@ -121,7 +121,7 @@ Fancast：https://yoyodadada.lanzoui.com/b07pspxi
 
 番茄影视：https://yoyodadada.lanzoui.com/b01bebx9a
 
-Flash_Player-PC版：https://yoyodadada.lanzoui.com/b01c5zykd 密码:cd0n
+Flash_Player-PC版：https://yoyodadada.lanzoui.com/b01c5zykd#cd0n 密码:cd0n
 
 ## 【G】
 
@@ -129,7 +129,7 @@ Flash_Player-PC版：https://yoyodadada.lanzoui.com/b01c5zykd 密码:cd0n
 
     超过100MB文件下载地址：https://www.123pan.com/s/JceA-CUfi 
 
-格式工厂-PC版：https://yoyodadada.lanzoui.com/b01c4aymj 密码:5b45
+格式工厂-PC版：https://yoyodadada.lanzoui.com/b01c4aymj#5b45 密码:5b45
 
 ## 【H】
 
@@ -151,11 +151,11 @@ HDP直播-TV版：https://yoyodadada.lanzoui.com/b07qdysd
 
 画廊：https://yoyodadada.lanzoui.com/b01bh360j
 
-火星直播-TV版：https://yoyodadada.lanzoui.com/b01chsuaj 密码:7fl0
+火星直播-TV版：https://yoyodadada.lanzoui.com/b01chsuaj#7fl0 密码:7fl0
 
-华数TV-TV版：https://yoyodadada.lanzoui.com/b01co9kfc 密码:7hfg
+华数TV-TV版：https://yoyodadada.lanzoui.com/b01co9kfc#7hfg 密码:7hfg
 
-红影TV-TV版：https://yoyodadada.lanzoui.com/b01co9kuh 密码:f235
+红影TV-TV版：https://yoyodadada.lanzoui.com/b01co9kuh#f235 密码:f235
 
 ## 【I】
 
@@ -169,9 +169,9 @@ InstaMod（第三方Instagram）：https://yoyodadada.lanzoui.com/b07rqgvc
 
 IT之家：https://yoyodadada.lanzoui.com/b01bwl4kf
 
-IDM-PC版：https://yoyodadada.lanzoui.com/b01c4az3g 密码:4v3k
+IDM-PC版：https://yoyodadada.lanzoui.com/b01c4az3g#4v3k 密码:4v3k
 
-Instander（第三方Instagram）https://yoyodadada.lanzoui.com/b01c7ybcd 密码:e3lv
+Instander（第三方Instagram）https://yoyodadada.lanzoui.com/b01c7ybcd#e3lv 密码:e3lv
 
 ## 【J】
 
@@ -181,15 +181,15 @@ Instander（第三方Instagram）https://yoyodadada.lanzoui.com/b01c7ybcd 密码
 
 京东：https://yoyodadada.lanzoui.com/b01ayf0ub
 
-加菲猫影视：https://yoyodadada.lanzoui.com/b01c34dpe 密码:hgmh
+加菲猫影视：https://yoyodadada.lanzoui.com/b01c34dpe#hgmh 密码:hgmh
 
-9亿TV-TV版：https://yoyodadada.lanzoui.com/b01co9mmb 密码:f10w
+9亿TV-TV版：https://yoyodadada.lanzoui.com/b01co9mmb#f10w 密码:f10w
 
-聚多影视-TV版：https://yoyodadada.lanzoui.com/b01co9mrg 密码:9qeb
+聚多影视-TV版：https://yoyodadada.lanzoui.com/b01co9mrg#9qeb 密码:9qeb
 
-极光影院：https://yoyodadada.lanzoui.com/b01co9puh 密码:f43v
+极光影院：https://yoyodadada.lanzoui.com/b01co9puh#f43v 密码:f43v
 
-今日影视-TV版：https://yoyodadada.lanzouw.com/b01cvj0dc 密码:ht3r
+今日影视-TV版：https://yoyodadada.lanzouw.com/b01cvj0dc#ht3r 密码:ht3r
 
 ## 【K】
 
@@ -204,7 +204,7 @@ Instander（第三方Instagram）https://yoyodadada.lanzoui.com/b01c7ybcd 密码
 
 酷我音乐-PC版：https://yoyodadada.lanzoui.com/b01ay4hkh
 
-酷我畅听：https://yoyodadada.lanzoui.com/b01c07vbi 密码:d78r
+酷我畅听：https://yoyodadada.lanzoui.com/b01c07vbi#d78r 密码:d78r
 
 ## 【L】
 
@@ -214,11 +214,11 @@ Instander（第三方Instagram）https://yoyodadada.lanzoui.com/b01c7ybcd 密码
 
 猎豹清理大师-TV版：https://yoyodadada.lanzoui.com/b07ptskj
 
-乐播投屏：https://yoyodadada.lanzoui.com/b01c6026d 密码:hqxi
+乐播投屏：https://yoyodadada.lanzoui.com/b01c6026d#hqxi 密码:hqxi
 
-蓝云：https://yoyodadada.lanzouw.com/b01crl5gd 密码:emqv
+蓝云：https://yoyodadada.lanzouw.com/b01crl5gd#emqv 密码:emqv
 
-雷电模拟器-PC版：https://yoyodadada.lanzouw.com/b01ctft0h 密码:esp8 （包含全部版本，超过100MB的以txt形式分享下载链接，源文件下载链接在下端。）（基本上所有文件均大于100MB了）
+雷电模拟器-PC版：https://yoyodadada.lanzouw.com/b01ctft0h#esp8 密码:esp8 （包含全部版本，超过100MB的以txt形式分享下载链接，源文件下载链接在下端。）（基本上所有文件均大于100MB了）
 
     v4.0.56.0及以后版本下载地址：https://www.123pan.com/s/JceA-pUfi 
 
@@ -244,9 +244,11 @@ microG：https://yoyodadada.lanzoui.com/b07pstla
 
 美图秀秀：https://yoyodadada.lanzoui.com/b01bwl4ch
 
-墨迹天气：https://yoyodadada.lanzoui.com/b01cdhakj 密码:2m1v
+墨迹天气：https://yoyodadada.lanzoui.com/b01cdhakj#2m1v 密码:2m1v
 
-猫影视TV-TV版：https://yoyodadada.lanzouw.com/b01crl5kh 密码:3u62
+猫影视TV-TV版：https://yoyodadada.lanzouw.com/b01crl5kh#3u62 密码:3u62
+
+MyRadio：https://yoyodadada.lanzouw.com/b01cwgf7e#eg66 密码:eg66
 
 ## 【N】
 
@@ -254,7 +256,7 @@ microG：https://yoyodadada.lanzoui.com/b07pstla
 
 南瓜美剧：https://yoyodadada.lanzoui.com/b01azoofa
 
-奈菲影视：https://yoyodadada.lanzoui.com/b01ciguoh 密码:elsb
+奈菲影视：https://yoyodadada.lanzoui.com/b01ciguoh#elsb 密码:elsb
 
 ## 【P】
 
@@ -274,7 +276,7 @@ PanDownload-PC版：https://yoyodadada.lanzoui.com/b07pv69i
 
 PotPlayer-PC版：https://yoyodadada.lanzoui.com/b07rt7af
 
-Pure Tuber（绿油管，去广告解锁VIP）：https://yoyodadada.lanzoui.com/b01cpncxc 密码:5b47
+Pure Tuber（绿油管，去广告解锁VIP）：https://yoyodadada.lanzoui.com/b01cpncxc#5b47 密码:5b47
 
 ## 【Q】
 
@@ -294,9 +296,9 @@ QQ：https://yoyodadada.lanzoui.com/b01b6ay1e （包含全部版本，超过100M
 
 QQ-PC版：https://yoyodadada.lanzoui.com/b01b7fkvg
 
-七猫免费小说：https://yoyodadada.lanzoui.com/b01c3kcmb 密码:cd9y
+七猫免费小说：https://yoyodadada.lanzoui.com/b01c3kcmb#cd9y 密码:cd9y
 
-清浊：https://yoyodadada.lanzoui.com/b01ca6r5c 密码:f1pr
+清浊：https://yoyodadada.lanzoui.com/b01ca6r5c#f1pr 密码:f1pr
 
 ## 【R】
 
@@ -348,9 +350,9 @@ Tim-PC版：https://yoyodadada.lanzoui.com/b01ay6ufc
 
 腾讯视频-PC版：https://yoyodadada.lanzoui.com/b01b1441i
 
-TV影院-TV版：https://yoyodadada.lanzoui.com/b01c4pi6h 密码:al8e
+TV影院-TV版：https://yoyodadada.lanzoui.com/b01c4pi6h#al8e 密码:al8e
 
-泰捷视频-TV版：https://yoyodadada.lanzoui.com/b01co9m2b 密码:he2z
+泰捷视频-TV版：https://yoyodadada.lanzoui.com/b01co9m2b#he2z 密码:he2z
 
 ## 【U】
 
@@ -410,9 +412,9 @@ WPS-PC版：https://yoyodadada.lanzoui.com/b01c3bwhc 密码:8fdh （包含全部
 
     v11.1.0.10009教育专版、v11.8.2.10229博湖县政府版、v11.8.2.10393集成序列号版、v11.8.2.10912集成序列号版下载地址：https://zijieyunpan.com/6XP5mgGDTaj
 
-WinRAR-PC版：https://yoyodadada.lanzoui.com/b01cdgqih 密码:252n
+WinRAR-PC版：https://yoyodadada.lanzoui.com/b01cdgqih#252n 密码:252n
 
-555电影：https://yoyodadada.lanzoui.com/b01ce1faj 密码:8txx
+555电影：https://yoyodadada.lanzoui.com/b01ce1faj#8txx 密码:8txx
 
 ## 【X】
 
@@ -444,11 +446,11 @@ X-Plore：https://yoyodadada.lanzoui.com/b07pt0hi
 
 小書视界：https://yoyodadada.lanzoui.com/b01bxc0kd
 
-小红书：https://yoyodadada.lanzoui.com/b01cahuri 密码:bk35 （包含全部版本，超过100MB的以txt形式分享下载链接，源文件下载链接在下端。）
+小红书：https://yoyodadada.lanzoui.com/b01cahuri#bk35 密码:bk35 （包含全部版本，超过100MB的以txt形式分享下载链接，源文件下载链接在下端。）
 
     v6.92.0、6.94.0下载地址：https://zijieyunpan.com/caxiLYYWEkG 
 
-讯飞语记：https://yoyodadada.lanzoui.com/b01co9qad 密码:et0k
+讯飞语记：https://yoyodadada.lanzoui.com/b01co9qad#et0k 密码:et0k
 
 ## 【Y】
 
@@ -476,9 +478,9 @@ YouTube_Vanced：https://yoyodadada.lanzoui.com/b07psqvc
 
 有道云笔记：https://yoyodadada.lanzoui.com/b01bwl3cb
 
-柚子TV-TV版：https://yoyodadada.lanzoui.com/b01co9lra 密码:f5zp
+柚子TV-TV版：https://yoyodadada.lanzoui.com/b01co9lra#f5zp 密码:f5zp
 
-优酷视频-PC版：https://yoyodadada.lanzoui.com/b01cp8raj 密码:8gz6
+优酷视频-PC版：https://yoyodadada.lanzoui.com/b01cp8raj#8gz6 密码:8gz6
 
 ## 【Z】
 
@@ -506,12 +508,12 @@ TV、盒子端应用：https://yoyodadada.lanzoui.com/b01bwl23g
 
 激活工具类：https://yoyodadada.lanzoui.com/b01by283a
 
-电商平台活动工具：https://yoyodadada.lanzoui.com/b01c33fdi 密码:a21b
+电商平台活动工具：https://yoyodadada.lanzoui.com/b01c33fdi#a21b 密码:a21b
 
-PC端应用：https://yoyodadada.lanzoui.com/b01c63npg 密码:er0q （包含全部版本，超过100MB的以txt形式分享下载链接，源文件下载链接在下端。）
+PC端应用：https://yoyodadada.lanzoui.com/b01c63npg#er0q 密码:er0q （包含全部版本，超过100MB的以txt形式分享下载链接，源文件下载链接在下端。）
 
     部分超过100MB软件下载地址：https://www.123pan.com/s/JceA-YUfi 
 
-考试类应用：https://yoyodadada.lanzoui.com/b01cdh9qj 密码:c80i
+考试类应用：https://yoyodadada.lanzoui.com/b01cdh9qj#c80i 密码:c80i
 
-OCR文字识别：https://yoyodadada.lanzouw.com/b01csyvfc 密码:7t2l
+OCR文字识别：https://yoyodadada.lanzouw.com/b01csyvfc#7t2l 密码:7t2l
