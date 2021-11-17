@@ -10,7 +10,7 @@ Gitee：https://gitee.com/realyoyodadada/haoruanfenxiang
 
 【网盘主页】下载地址（蓝奏）（按更新时间倒序排列）：
 
-https://yoyodadada.lanzoui.com/u/yoyodadada
+https://yoyodadada.lanzouw.com/u/yoyodadada
 
 ## 软件列表：
 
@@ -34,9 +34,7 @@ Telegram群组（推荐加入！聊天吹水不开车，频道内容自动转发
 
 注1：本页发布的资源均为公开版，内部资源请加入Telegram频道或群组。
 
-注2：蓝奏网页打不开的，把lanzous替换成lanzoui或者lanzoux或者lanzouw就可以了。
-
-注3：蓝奏链接里的版本是最全的，因为蓝奏文件大小限制问题，最大只能分享100MB的文件，超过100MB的，我会转到字节网盘或者123云盘分享，并将分享链接以txt形式分享在蓝奏盘里。
+注2：蓝奏链接里的版本是最全的，因为蓝奏文件大小限制问题，最大只能分享100MB的文件，超过100MB的，我会转到字节网盘或者123云盘分享，并将分享链接以txt形式分享在蓝奏盘里。
 
 ## 版权声明：
 
