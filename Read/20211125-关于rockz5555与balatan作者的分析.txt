@@ -1,0 +1,3 @@
+20211125-关于rockz5555与balatan作者的分析：
+一直以来，发现很多国外mobilism资源标明作者为@Balatan，其签名信息均为@rockz5555，个人推断@rockz5555与网传@Balatan为同一人，毕竟签名信息中从未出现过@Balatan。
+此人为国外XDA、mobilism论坛著名逆向大佬，好像是个俄罗斯人，其修改的软件轻便好用，且均未加固。
