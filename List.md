@@ -157,6 +157,8 @@ HDP直播-TV版：https://yoyodadada.lanzouw.com/b07qdysd
 
 红影TV-TV版：https://yoyodadada.lanzouw.com/b01co9kuh#f235 密码:f235
 
+海魂TV-TV版：https://yoyodadada.lanzouw.com/b01cxmbgb#97le 密码:97le
+
 ## 【I】
 
 Instagram：https://yoyodadada.lanzouw.com/b07psope
