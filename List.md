@@ -193,6 +193,8 @@ Instander（第三方Instagram）https://yoyodadada.lanzouw.com/b01c7ybcd#e3lv �
 
 今日影视-TV版：https://yoyodadada.lanzouw.com/b01cvj0dc#ht3r 密码:ht3r
 
+极光影院TV-TV版：https://yoyodadada.lanzouw.com/b01cxq2di#h4pi 密码:h4pi
+
 ## 【K】
 
 快点投屏：https://yoyodadada.lanzouw.com/b07psqqh
