@@ -1,0 +1,14 @@
+20211130-v2更新内容：
+1.新增极光影院TV-TV版，并将未归类内此软件归纳于此。
+2.TV、盒子端应用更新一起看TV-TV版v2.0.7。
+国内镜像：
+不能正常浏览的，可以浏览国内镜像，每次更新后会同步。
+Gitee：https://gitee.com/realyoyodadada/haoruanfenxiang
+下载地址：
+【网盘主页】下载地址（蓝奏）（按更新时间倒序排列）：
+https://yoyodadada.lanzouw.com/u/yoyodadada
+软件列表：
+【软件列表】GitHub（按软件名首字母归类）：
+https://github.com/yoyodadada/haoruanfenxiang/blob/master/List.md
+【软件列表】Gitee国内镜像：
+https://gitee.com/realyoyodadada/haoruanfenxiang/blob/master/List.md
