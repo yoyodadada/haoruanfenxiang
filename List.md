@@ -420,6 +420,10 @@ WinRAR-PC版：https://yoyodadada.lanzouw.com/b01cdgqih#252n 密码:252n
 
 555电影：https://yoyodadada.lanzouw.com/b01ce1faj#8txx 密码:8txx
 
+万彩办公大师-PC版：https://yoyodadada.lanzouw.com/b01cy58lc#eyrb 密码:eyrb （包含全部版本，超过100MB的以txt形式分享下载链接，源文件下载链接在下端。）
+
+    超过100MB版本下载地址：https://www.123pan.com/s/JceA-1Sfi
+
 ## 【X】
 
 香哈菜谱：https://yoyodadada.lanzouw.com/b07psouj
