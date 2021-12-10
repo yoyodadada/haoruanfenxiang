@@ -30,7 +30,9 @@ AirPin-TV版：https://yoyodadada.lanzouw.com/b07pt2jc
 
     v11.4.5三星Galaxy S21+提取版、v11.11.11下载地址：https://zijieyunpan.com/6No033RJMU1
 
-哔哩哔哩：https://yoyodadada.lanzouw.com/b07pspyj
+哔哩哔哩：https://yoyodadada.lanzouw.com/b07pspyj （包含全部版本，超过100MB的以txt形式分享下载链接，源文件下载链接在下端。）
+
+    超过100MB文件下载地址：https://www.123pan.com/s/JceA-JSfi
 
 宝贝听听：https://yoyodadada.lanzouw.com/b07psr7e
 
