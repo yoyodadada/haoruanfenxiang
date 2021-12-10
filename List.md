@@ -492,6 +492,8 @@ YouTube_Vanced：https://yoyodadada.lanzouw.com/b07psqvc
 
 优酷视频-PC版：https://yoyodadada.lanzouw.com/b01cp8raj#8gz6 密码:8gz6
 
+影视猫Plus：https://yoyodadada.lanzouw.com/b01czal5a#8wb1 密码:8wb1
+
 ## 【Z】
 
 支付宝：https://yoyodadada.lanzouw.com/b07psrmj
