@@ -161,6 +161,8 @@ HDP直播-TV版：https://yoyodadada.lanzouw.com/b07qdysd
 
 海魂TV-TV版：https://yoyodadada.lanzouw.com/b01cxmbgb#97le 密码:97le
 
+HashMyFiles-PC版：https://yoyodadada.lanzouw.com/b01czjckf#4mp7 密码:4mp7
+
 ## 【I】
 
 Instagram：https://yoyodadada.lanzouw.com/b07psope
