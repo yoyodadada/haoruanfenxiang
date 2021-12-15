@@ -1,0 +1,23 @@
+20211215更新内容：
+1.PC端应用更新360极速浏览器X_v21.0.1050.0@mefc优化安装版。
+2.硬件检测类更新AIDA64_v6.60@zd423绿色完整版、单文件便携版。
+3.CCleaner-PC版更新v5.88.9346@zd423绿色增强破解版。
+4.SD Maid更新v5.3.10@rockz5555暗黑魔改版。
+5.speedtest更新v4.6.14@rockz5555破解高级版。
+6.WPS更新v15.4@rockz5555破解高级版；更新v15.4.1@mixroot破解高级版。
+7.大师兄影视更新v1.9.5（20211213）@zhou45去广告去升级版。
+8.韩剧TV附加v1.0极简版。
+9.2345看图王-PC版更新v10.8.1.9695@zd423去广告绿色版。
+10.蓝云更新至v1.1.8.6.1。
+11.未归类附加小鸡模拟器v1.7.27@耗子破解会员版。
+国内镜像：
+不能正常浏览的，可以浏览国内镜像，每次更新后会同步。
+Gitee：https://gitee.com/realyoyodadada/haoruanfenxiang
+下载地址：
+【网盘主页】下载地址（蓝奏）（按更新时间倒序排列）：
+https://yoyodadada.lanzouw.com/u/yoyodadada
+软件列表：
+【软件列表】GitHub（按软件名首字母归类）：
+https://github.com/yoyodadada/haoruanfenxiang/blob/master/List.md
+【软件列表】Gitee国内镜像：
+https://gitee.com/realyoyodadada/haoruanfenxiang/blob/master/List.md
