@@ -109,6 +109,8 @@ CIBN聚体育-TV版：https://yoyodadada.lanzouw.com/b01co9mcb#bmux 密码:bmux
 
 大师兄影视-TV版：https://yoyodadada.lanzouw.com/b01crl4yf#i6vd 密码:i6vd
 
+嘀哩嘀哩：https://yoyodadada.lanzouw.com/b01d0c7cb#dcg4 密码:dcg4
+
 ## 【E】
 
 儿歌多多：https://yoyodadada.lanzouw.com/b07pspsd
@@ -198,6 +200,8 @@ Instander（第三方Instagram）https://yoyodadada.lanzouw.com/b01c7ybcd#e3lv �
 今日影视-TV版：https://yoyodadada.lanzouw.com/b01cvj0dc#ht3r 密码:ht3r
 
 极光影院TV-TV版：https://yoyodadada.lanzouw.com/b01cxq2di#h4pi 密码:h4pi
+
+剪映：https://yoyodadada.lanzouw.com/b01d0c7la#i63s 密码:i63s
 
 ## 【K】
 
@@ -463,6 +467,8 @@ X-Plore：https://yoyodadada.lanzouw.com/b07pt0hi
     v6.92.0、6.94.0下载地址：https://zijieyunpan.com/caxiLYYWEkG 
 
 讯飞语记：https://yoyodadada.lanzouw.com/b01co9qad#et0k 密码:et0k
+
+小鸡模拟器：https://yoyodadada.lanzouw.com/b01d0c7uj#7j31 密码:7j31
 
 ## 【Y】
 
