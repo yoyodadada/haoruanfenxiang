@@ -505,6 +505,8 @@ YouTube_Vanced：https://yoyodadada.lanzouw.com/b07psqvc
 
 一起看TV-TV版：https://yoyodadada.lanzouw.com/b01czr1qd#8p4l 密码:8p4l
 
+YouKnow-TV版：https://yoyodadada.lanzouw.com/b01d1ng2h#5mju 密码:5mju
+
 ## 【Z】
 
 支付宝：https://yoyodadada.lanzouw.com/b07psrmj
