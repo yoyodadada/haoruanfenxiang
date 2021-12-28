@@ -423,6 +423,7 @@ WPS：https://yoyodadada.lanzouw.com/b07pspuf
 WPS-PC版：https://yoyodadada.lanzouw.com/b01c3bwhc 密码:8fdh （包含全部版本，超过100MB的以txt形式分享下载链接，源文件下载链接在下端。）
 
     v11.1.0.10009教育专版、v11.8.2.10229博湖县政府版、v11.8.2.10393集成序列号版、v11.8.2.10912集成序列号版下载地址：https://zijieyunpan.com/6XP5mgGDTaj
+    其余超过100MB版本下载地址：https://www.123pan.com/s/JceA-3efi
 
 WinRAR-PC版：https://yoyodadada.lanzouw.com/b01cdgqih#252n 密码:252n
 
