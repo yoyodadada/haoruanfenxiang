@@ -16,15 +16,17 @@ GitHub：https://github.com/yoyodadada/haoruanfenxiang/blob/master/List.md
 
 Gitee国内镜像：https://gitee.com/realyoyodadada/haoruanfenxiang/blob/master/List.md
 
+## TG频道及群组：
+
+Telegram频道：https://t.me/haoruanfenxiang
+
+Telegram群组：https://t.me/haoruanfenxianggroup
+
 ## 说明：
 
 2021年3月19日：酷安账号被封，已卸载酷安，日后更新内容和下载地址将不会在酷安上通知。
 
 「好软分享」是酷安「姚小贱“精选软件”应用集」的衍生版，合并了「姚小贱“精选TV软件”应用集」，附加了PC软件，因此更名为「好软分享」。每次更新内容详见「UpdateLog」文件夹中对应的年月日，同时在Telegram频道广播中发布。
-
-Telegram频道（推荐加入！用于发布资源，经常发布内部资源）：https://t.me/haoruanfenxiang
-
-Telegram群组（推荐加入！聊天吹水不开车，频道内容自动转发到群组）：https://t.me/haoruanfenxianggroup
 
 注1：本页发布的资源均为公开版，内部资源请加入Telegram频道或群组。
 
