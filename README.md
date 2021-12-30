@@ -1,10 +1,10 @@
 # 好软分享
 
-## 国内镜像：
+## 项目地址：
 
-不能正常浏览的，可以浏览国内镜像，每次更新后会同步。
+【项目地址】GitHub：https://github.com/yoyodadada/haoruanfenxiang
 
-Gitee：https://gitee.com/realyoyodadada/haoruanfenxiang
+【项目地址】Gitee国内镜像：https://gitee.com/realyoyodadada/haoruanfenxiang
 
 ## 下载地址：
 
