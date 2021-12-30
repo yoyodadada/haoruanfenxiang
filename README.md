@@ -2,19 +2,19 @@
 
 ## 项目地址：
 
-【项目地址】GitHub：https://github.com/yoyodadada/haoruanfenxiang
+GitHub：https://github.com/yoyodadada/haoruanfenxiang
 
-【项目地址】Gitee国内镜像：https://gitee.com/realyoyodadada/haoruanfenxiang
+Gitee国内镜像：https://gitee.com/realyoyodadada/haoruanfenxiang
 
 ## 下载地址（按更新时间倒序排列）：
 
-【网盘主页】下载地址（蓝奏）：https://yoyodadada.lanzouw.com/u/yoyodadada
+蓝奏云主页：https://yoyodadada.lanzouw.com/u/yoyodadada
 
 ## 软件列表（按软件名首字母归类）：
 
-【软件列表】GitHub：https://github.com/yoyodadada/haoruanfenxiang/blob/master/List.md
+GitHub：https://github.com/yoyodadada/haoruanfenxiang/blob/master/List.md
 
-【软件列表】Gitee国内镜像：https://gitee.com/realyoyodadada/haoruanfenxiang/blob/master/List.md
+Gitee国内镜像：https://gitee.com/realyoyodadada/haoruanfenxiang/blob/master/List.md
 
 ## 说明：
 
