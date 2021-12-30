@@ -8,7 +8,7 @@ Gitee国内镜像：https://gitee.com/realyoyodadada/haoruanfenxiang
 
 ## 下载地址（按更新时间倒序排列）：
 
-蓝奏云主页：https://yoyodadada.lanzouw.com/u/yoyodadada
+蓝奏主页：https://yoyodadada.lanzouw.com/u/yoyodadada
 
 ## 软件列表（按软件名首字母归类）：
 
@@ -28,9 +28,9 @@ Telegram群组：https://t.me/haoruanfenxianggroup
 
 「好软分享」是酷安「姚小贱“精选软件”应用集」的衍生版，合并了「姚小贱“精选TV软件”应用集」，附加了PC软件，因此更名为「好软分享」。每次更新内容详见「UpdateLog」文件夹中对应的年月日，同时在Telegram频道广播中发布。
 
-注1：本页发布的资源均为公开版，内部资源请加入Telegram频道或群组。
+注1：本项目发布的资源均为公开版，内部资源请加入Telegram频道或群组。
 
-注2：蓝奏链接里的版本是最全的，因为蓝奏文件大小限制问题，最大只能分享100MB的文件，超过100MB的，我会转到字节网盘或者123云盘分享，并将分享链接以txt形式分享在蓝奏盘里。
+注2：蓝奏链接里的版本是最全的，因为蓝奏文件大小限制问题，最大只能分享100MB的文件，超过100MB的，我会转到字节网盘或者123云盘分享，并将分享链接以txt形式分享在蓝奏里。
 
 ## 版权声明：
 
