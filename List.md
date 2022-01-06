@@ -71,6 +71,8 @@ Bmap（白马地图）：https://yoyodadada.lanzouw.com/b01c13ojg#ht7i 密码:ht
 
 波澜投屏-TV版：https://yoyodadada.lanzouw.com/b01cus5na#ax2k 密码:ax2k
 
+白嫖影视：https://yoyodadada.lanzouw.com/b01d2rqkf#f8lp 密码:f8lp
+
 ## 【C】
 
 Calc_Business（卡西欧科学计算器）：https://yoyodadada.lanzouw.com/b07psqyf
