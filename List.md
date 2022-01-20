@@ -272,6 +272,8 @@ MyRadio：https://yoyodadada.lanzouw.com/b01cwgf7e#eg66 密码:eg66
 
 奈菲影视：https://yoyodadada.lanzouw.com/b01ciguoh#elsb 密码:elsb
 
+NewPipe：https://yoyodadada.lanzouw.com/b01d49l3c#fecp 密码:fecp
+
 ## 【P】
 
 葡萄影视：https://yoyodadada.lanzouw.com/b07pspch
