@@ -242,7 +242,7 @@ Instander（第三方Instagram）https://yoyodadada.lanzouw.com/b01c7ybcd#e3lv �
 
 芒果TV：https://yoyodadada.lanzouw.com/b07psq3e
 
-MX_Player_Pro：https://yoyodadada.lanzouw.com/b07psqab
+MX_Player：https://yoyodadada.lanzouw.com/b07psqab
 
 MUJI_to_Sleep：https://yoyodadada.lanzouw.com/b07psr6d
 
