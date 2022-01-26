@@ -380,6 +380,8 @@ TV影院-TV版：https://yoyodadada.lanzouw.com/b01c4pi6h#al8e 密码:al8e
 
 UnblockMusic：https://yoyodadada.lanzouw.com/b01aya7ad
 
+UU游戏加速器：https://yoyodadada.lanzouw.com/b01d4yacf#7ye0 密码:7ye0
+
 ## 【V】
 
 VSCO：https://yoyodadada.lanzouw.com/b07psq7i
