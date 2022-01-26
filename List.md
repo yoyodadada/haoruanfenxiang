@@ -24,6 +24,8 @@ AirPin-TV版：https://yoyodadada.lanzouw.com/b07pt2jc
 
 爱奇艺-PC版：https://yoyodadada.lanzouw.com/b01cp8omd#ghf7 密码:ghf7
 
+阿里云盘TV-TV版：https://yoyodadada.lanzouw.com/b01d4y5qj#aguw 密码:aguw
+
 ## 【B】
 
 百度网盘：https://yoyodadada.lanzouw.com/b07pspid （包含全部版本，超过100MB的以txt形式分享下载链接，源文件下载链接在下端。）
