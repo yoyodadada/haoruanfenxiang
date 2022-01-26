@@ -481,6 +481,8 @@ X-Plore：https://yoyodadada.lanzouw.com/b07pt0hi
 
 小鸡模拟器：https://yoyodadada.lanzouw.com/b01d0c7uj#7j31 密码:7j31
 
+小鸡模拟器TV版-TV版：https://yoyodadada.lanzouw.com/b01d4y8wd#7kgp 密码:7kgp
+
 ## 【Y】
 
 影迷大院：https://yoyodadada.lanzouw.com/b07psplg
