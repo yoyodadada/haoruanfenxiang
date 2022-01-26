@@ -548,3 +548,5 @@ PC端应用：https://yoyodadada.lanzouw.com/b01c63npg#er0q 密码:er0q （包�
 考试类应用：https://yoyodadada.lanzouw.com/b01cdh9qj#c80i 密码:c80i
 
 OCR文字识别：https://yoyodadada.lanzouw.com/b01csyvfc#7t2l 密码:7t2l
+
+JS脚本：https://yoyodadada.lanzouw.com/b01d4y3xe#6jnn 密码:6jnn
