@@ -137,6 +137,8 @@ Fancast：https://yoyodadada.lanzouw.com/b07pspxi
 
 Flash_Player-PC版：https://yoyodadada.lanzouw.com/b01c5zykd#cd0n 密码:cd0n
 
+FreeDTV-TV版：https://yoyodadada.lanzouw.com/b01d558eh#3ml6 密码:3ml6
+
 ## 【G】
 
 高德地图：https://yoyodadada.lanzouw.com/b07psqne （包含全部版本，超过100MB的以txt形式分享下载链接，源文件下载链接在下端。）
