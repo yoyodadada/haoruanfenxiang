@@ -1,0 +1,17 @@
+20220130更新内容：
+1.MX Player更新v1.43.5@ositkp去广告版。
+2.speedtest更新v4.6.18@balatan破解高级版。
+3.microG更新v0.2.22.212658@GhostRider修改版。
+4.VSCO更新v254@balatan破解版。
+5.PC端应用附加Windows Update Blocker v1.7（禁止升级工具）。
+6.WPS更新v15.7（471、472）@balatan破解高级版。
+7.XMind更新v1.8.13@小叶夕阳破解会员版。
+8.YouKnow-TV版更新至v1.8.3。
+9.YouTube vanced更新v16.30.34@GhostRider修改版。
+10.豆瓣更新v7.22.0.beta6@小叶夕阳去广告精简版。
+11.海阔视界更新至v6.12。
+12.OCR文字识别更新天若OCR离线版v1.3.1。
+13.微博国际版更新v4.0.8@zhou去广告Play版。
+14.PC端应用附加微软电脑管家_v1.0.0.2164内测版（据说仅win11可用）。
+15.TV、盒子端应用附加追剧大人v1.6。
+16.PC端应用附加WinFR界面版（window文件恢复命令行界面版）。
