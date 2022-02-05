@@ -34,7 +34,7 @@ AirPin-TV版：https://yoyodadada.lanzouw.com/b07pt2jc
 
 哔哩哔哩：https://yoyodadada.lanzouw.com/b07pspyj （包含全部版本，超过100MB的以txt形式分享下载链接，源文件下载链接在下端。）
 
-    超过100MB文件下载地址：https://www.123pan.com/s/JceA-JSfi
+    超过100MB文件下载地址：https://www.123pan.com/s/JceA-JSfi ；https://www.bytepan.com/RY3hfskNJFJ
 
 宝贝听听：https://yoyodadada.lanzouw.com/b07psr7e
 
