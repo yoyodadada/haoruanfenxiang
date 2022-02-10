@@ -386,6 +386,8 @@ TV影院-TV版：https://yoyodadada.lanzouw.com/b01c4pi6h#al8e 密码:al8e
 
 泰捷视频-TV版：https://yoyodadada.lanzouw.com/b01co9m2b#he2z 密码:he2z
 
+天翼云盘-PC版：https://yoyodadada.lanzouw.com/b01d6hg1a#774w 密码:774w
+
 ## 【U】
 
 UnblockMusic：https://yoyodadada.lanzouw.com/b01aya7ad
