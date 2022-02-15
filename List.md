@@ -179,6 +179,8 @@ HDP直播-TV版：https://yoyodadada.lanzouw.com/b07qdysd
 
 HashMyFiles-PC版：https://yoyodadada.lanzouw.com/b01czjckf#4mp7 密码:4mp7
 
+火龙果影视：https://yoyodadada.lanzouw.com/b01d74z7i#eyu2 密码:eyu2
+
 ## 【I】
 
 Instagram：https://yoyodadada.lanzouw.com/b07psope
