@@ -499,6 +499,8 @@ X-Plore：https://yoyodadada.lanzouw.com/b07pt0hi
 
 小鸡模拟器TV版-TV版：https://yoyodadada.lanzouw.com/b01d4y8wd#7kgp 密码:7kgp
 
+小鲸电视-TV版：https://yoyodadada.lanzouw.com/b01d74zpg#514k 密码:514k
+
 ## 【Y】
 
 影迷大院：https://yoyodadada.lanzouw.com/b07psplg
