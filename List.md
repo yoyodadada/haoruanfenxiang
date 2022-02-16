@@ -364,6 +364,8 @@ SoftCnKiller-PC版（一款流氓软件清理工具）：https://yoyodadada.lanz
 
 360手机浏览器：https://yoyodadada.lanzouw.com/b01d7cjkd#8zxc 密码:8zxc
 
+手机性能排行：https://yoyodadada.lanzouw.com/b01d7clch#eetu 密码:eetu
+
 ## 【T】
 
 腾讯视频：https://yoyodadada.lanzouw.com/b07psoqf （包含全部版本，超过100MB的以txt形式分享下载链接，源文件下载链接在下端。）
