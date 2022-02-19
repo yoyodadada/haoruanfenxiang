@@ -288,6 +288,8 @@ MyRadio：https://yoyodadada.lanzouw.com/b01cwgf7e#eg66 密码:eg66
 
 NewPipe：https://yoyodadada.lanzouw.com/b01d49l3c#fecp 密码:fecp
 
+Nekogram_X：https://yoyodadada.lanzouw.com/b01d7lsta#e2z0 密码：e2z0
+
 ## 【P】
 
 葡萄影视：https://yoyodadada.lanzouw.com/b07pspch
