@@ -507,6 +507,8 @@ X-Plore：https://yoyodadada.lanzouw.com/b07pt0hi
 
 小鲸电视-TV版：https://yoyodadada.lanzouw.com/b01d74zpg#514k 密码:514k
 
+小马模拟器：https://yoyodadada.lanzouw.com/b01d8dj5a#1y1p 密码:1y1p
+
 ## 【Y】
 
 影迷大院：https://yoyodadada.lanzouw.com/b07psplg
