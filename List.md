@@ -240,6 +240,8 @@ Instander（第三方Instagram）https://yoyodadada.lanzouw.com/b01c7ybcd#e3lv �
 
 酷我音乐时代-TV版：https://yoyodadada.lanzouw.com/b01d9llgh#1fpx 密码:1fpx
 
+酷安：https://yoyodadada.lanzouw.com/b01d9upwb#i4y2 密码:i4y2
+
 ## 【L】
 
 乐播：https://yoyodadada.lanzouw.com/b07psqbc
