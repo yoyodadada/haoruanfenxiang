@@ -272,8 +272,6 @@ MUJI_to_Sleep：https://yoyodadada.lanzouw.com/b07psr6d
 
 美食杰：https://yoyodadada.lanzouw.com/b07psr9g
 
-microG：https://yoyodadada.lanzouw.com/b07pstla
-
 美柚：https://yoyodadada.lanzouw.com/b07pt0xe
 
 魔力视频-TV版：https://yoyodadada.lanzouw.com/b07pt2ng
