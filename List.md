@@ -348,6 +348,8 @@ rufus-PC版：https://yoyodadada.lanzouw.com/b07rx88d
 
 人人视频：https://yoyodadada.lanzouw.com/b01bh2x6b
 
+RevokeMsgPatcher-PC版（PC版微信QQTIM防撤回补丁）：https://yoyodadada.lanzouw.com/b01dbslaf#6hjg 密码:6hjg
+
 ## 【S】
 
 SpeedTest：https://yoyodadada.lanzouw.com/b07psq6h
