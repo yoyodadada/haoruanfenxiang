@@ -3,3 +3,4 @@
 2.新增RevokeMsgPatcher-PC版（PC版微信QQTIM防撤回补丁），更新至v1.3，并将PC端应用内此软件归纳于此。
 3.WPS-PC版附加WPS2019专业增强版_v11.8.2.10972_中石油定制版。
 4.QQ-PC版更新v9.5.9(28625)@Dreamcast去广告精简优化绿色版、安装版、NtrQQ绿色增强版、NtrQQ安装增强版。
+5..WPS更新v16.0.1@mixroot破解高级版。
