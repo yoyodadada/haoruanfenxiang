@@ -103,6 +103,8 @@ CIBN聚体育-TV版：https://yoyodadada.lanzouw.com/b01co9mcb#bmux 密码:bmux
 
 彩云天气：https://yoyodadada.lanzouw.com/b01d9lneh#e67a 密码:e67a
 
+COKEMV：https://yoyodadada.lanzouw.com/b01dccxli#8fe2 密码:8fe2
+
 ## 【D】
 
 电视猫-TV版：https://yoyodadada.lanzouw.com/b07pt2dg
