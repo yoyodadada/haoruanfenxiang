@@ -579,6 +579,8 @@ YouKnow-TV版：https://yoyodadada.lanzouw.com/b01d1ng2h#5mju 密码:5mju
 
 未归类：https://yoyodadada.lanzouw.com/b01b01h9a
 
+    超过100MB软件下载地址：https://www.123pan.com/s/JceA-vzfi
+
 口罩相关标准（针对2019年新冠疫情）：https://yoyodadada.lanzouw.com/b01b77bdg
 
 电商平台抢购软件：https://yoyodadada.lanzouw.com/b01b77boh
