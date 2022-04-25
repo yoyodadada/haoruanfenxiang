@@ -239,6 +239,7 @@ Instander（第三方Instagram）https://yoyodadada.lanzouw.com/b01c7ybcd#e3lv �
 
     v9.5.0.0、v9.5.0.1及v10.0.5.0以后下载地址：https://zijieyunpan.com/RtA2Xy4oVVr
     v9.5.0.2至v10.0.5.0版本下载地址：https://www.123pan.com/s/JceA-kUfi 
+    其余超过100MB文件下载地址：https://pan.bilnn.cn/s/bwGzFO
 
 酷我音乐-PC版：https://yoyodadada.lanzouw.com/b01ay4hkh
 
@@ -263,6 +264,7 @@ Instander（第三方Instagram）https://yoyodadada.lanzouw.com/b01c7ybcd#e3lv �
 雷电模拟器-PC版：https://yoyodadada.lanzouw.com/b01ctft0h#esp8 密码:esp8 （包含全部版本，超过100MB的以txt形式分享下载链接，源文件下载链接在下端。）（基本上所有文件均大于100MB了）
 
     v4.0.56.0及以后版本下载地址：https://www.123pan.com/s/JceA-pUfi 
+    其余超过100MB文件下载地址：https://www.bytepan.com/uriyaSq83Ts
 
 ## 【M】
 
