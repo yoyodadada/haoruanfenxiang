@@ -378,7 +378,9 @@ SpeedPan-PC版：https://yoyodadada.lanzouw.com/b07qbfze
 
 SoftCnKiller-PC版（一款流氓软件清理工具）：https://yoyodadada.lanzouw.com/b01d6h59c#6sds 密码:6sds
 
-360浏览器-PC版：https://yoyodadada.lanzouw.com/b01d6hfle#bu23 密码:bu23
+360浏览器-PC版：https://yoyodadada.lanzouw.com/b01d6hfle#bu23 密码:bu23 （包含全部版本，超过100MB的以txt形式分享下载链接，源文件下载链接在下端。）
+
+    超过100MB文件下载地址：https://www.bytepan.com/xUh0f9oS4Pi
 
 360手机浏览器：https://yoyodadada.lanzouw.com/b01d7cjkd#8zxc 密码:8zxc
 
