@@ -14,7 +14,7 @@ GitCode国内镜像：https://gitcode.net/yoyodadada/haoruanfenxiang
 
 GitHub：https://github.com/yoyodadada/haoruanfenxiang/blob/master/List.md
 
-GitCode国内镜像：https://gitcode.net/yoyodadada/haoruanfenxiang/-/blob/master/List.md
+GitCode国内镜像：https://gitcode.net/yoyodadada/haoruanfenxiang/blob/master/List.md
 
 ## TG频道及群组：
 
