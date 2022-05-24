@@ -4,7 +4,7 @@
 
 GitHub：https://github.com/yoyodadada/haoruanfenxiang
 
-~~Gitee国内镜像：https://gitee.com/realyoyodadada/haoruanfenxiang~~
+GitHub国内加速代理：https://ghproxy.com/https://github.com/yoyodadada/haoruanfenxiang
 
 ## 下载地址（按更新时间倒序排列）：
 
@@ -14,7 +14,7 @@ GitHub：https://github.com/yoyodadada/haoruanfenxiang
 
 GitHub：https://github.com/yoyodadada/haoruanfenxiang/blob/master/List.md
 
-~~Gitee国内镜像：https://gitee.com/realyoyodadada/haoruanfenxiang/blob/master/List.md~~
+GitHub国内加速代理：https://ghproxy.com/https://github.com/yoyodadada/haoruanfenxiang/blob/master/List.md
 
 ## TG频道及群组：
 
