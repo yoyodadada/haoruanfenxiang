@@ -539,6 +539,8 @@ X-Plore：https://yoyodadada.lanzouw.com/b07pt0hi
 
 小马模拟器：https://yoyodadada.lanzouw.com/b01d8dj5a#1y1p 密码:1y1p
 
+星火海外版-TV版：https://yoyodadada.lanzouw.com/b01ddjppc#dhpw 密码:dhpw
+
 ## 【Y】
 
 影迷大院：https://yoyodadada.lanzouw.com/b07psplg
