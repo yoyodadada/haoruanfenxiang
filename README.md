@@ -1,5 +1,7 @@
 # 好软分享
 
+### https://yoyodadada.github.io/haoruanfenxiang
+
 ## 项目地址：
 
 GitHub：https://github.com/yoyodadada/haoruanfenxiang
