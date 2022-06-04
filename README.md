@@ -20,9 +20,13 @@ https://yoyodadada.github.io/haoruanfenxiang/List.md
 
 ## TG频道及群组：
 
-Telegram频道：https://t.me/haoruanfenxiang
+Telegram频道：
 
-Telegram群组：https://t.me/haoruanfenxianggroup
+https://t.me/haoruanfenxiang
+
+Telegram群组：
+
+https://t.me/haoruanfenxianggroup
 
 ## 说明：
 
