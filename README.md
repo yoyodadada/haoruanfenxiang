@@ -2,31 +2,21 @@
 
 ## 项目地址：
 
-GitHub：
-
-https://yoyodadada.github.io/haoruanfenxiang
+GitHub：https://github.com/yoyodadada/haoruanfenxiang
 
 ## 下载地址（按更新时间倒序排列）：
 
-蓝奏主页：
-
-https://yoyodadada.lanzouw.com/u/yoyodadada
+蓝奏主页：https://yoyodadada.lanzouw.com/u/yoyodadada
 
 ## 软件列表（按软件名首字母归类）：
 
-GitHub：
-
-https://yoyodadada.github.io/haoruanfenxiang/List.md
+GitHub：https://github.com/yoyodadada/haoruanfenxiang/blob/master/List.md
 
 ## TG频道及群组：
 
-Telegram频道：
+Telegram频道：https://t.me/haoruanfenxiang
 
-https://t.me/haoruanfenxiang
-
-Telegram群组：
-
-https://t.me/haoruanfenxianggroup
+Telegram群组：https://t.me/haoruanfenxianggroup
 
 ## 说明：
 
