@@ -26,6 +26,10 @@ AirPin-TV版：https://yoyodadada.lanzouw.com/b07pt2jc
 
 阿里云盘TV-TV版：https://yoyodadada.lanzouw.com/b01d4y5qj#aguw 密码:aguw
 
+阿里云盘-PC版：https://yoyodadada.lanzouw.com/b01dlv32h#f4po 密码:f4po
+
+AnyTXT.Searcher-PC版：https://yoyodadada.lanzouw.com/b01dlv3ej#6imc 密码:6imc
+
 ## 【B】
 
 百度网盘：https://yoyodadada.lanzouw.com/b07pspid （包含全部版本，超过100MB的以txt形式分享下载链接，源文件下载链接在下端。）
@@ -144,6 +148,8 @@ Flash_Player-PC版：https://yoyodadada.lanzouw.com/b01c5zykd#cd0n 密码:cd0n
 FreeDTV-TV版：https://yoyodadada.lanzouw.com/b01d558eh#3ml6 密码:3ml6
 
 浮动时间：https://yoyodadada.lanzouw.com/b01d6hbuj#heti 密码:heti
+
+饭团影院：https://yoyodadada.lanzouw.com/b01dlv12f#31nk 密码:31nk
 
 ## 【G】
 
@@ -306,6 +312,8 @@ Nekogram_X：https://yoyodadada.lanzouw.com/b01d7lsta#e2z0 密码：e2z0
 
 Nagram：https://yoyodadada.lanzouw.com/b01dkke6f#ekik 密码:ekik
 
+南府影视：https://yoyodadada.lanzouw.com/b01dlv0na#gyyr 密码:gyyr
+
 ## 【P】
 
 葡萄影视：https://yoyodadada.lanzouw.com/b07pspch
@@ -390,6 +398,8 @@ SoftCnKiller-PC版（一款流氓软件清理工具）：https://yoyodadada.lanz
 
 闪电下载：https://yoyodadada.lanzouw.com/b01di9ptg#b1tp 密码:b1tp
 
+SGImini-PC版：https://yoyodadada.lanzouw.com/b01dlv4hi#68tw 密码:68tw
+
 ## 【T】
 
 腾讯视频：https://yoyodadada.lanzouw.com/b07psoqf （包含全部版本，超过100MB的以txt形式分享下载链接，源文件下载链接在下端。）
@@ -419,6 +429,8 @@ TV影院-TV版：https://yoyodadada.lanzouw.com/b01c4pi6h#al8e 密码:al8e
 泰捷视频-TV版：https://yoyodadada.lanzouw.com/b01co9m2b#he2z 密码:he2z
 
 天翼云盘-PC版：https://yoyodadada.lanzouw.com/b01d6hg1a#774w 密码:774w
+
+天天听书：https://yoyodadada.lanzouw.com/b01dlv1gj#fet3 密码:fet3
 
 ## 【U】
 
@@ -541,6 +553,10 @@ X-Plore：https://yoyodadada.lanzouw.com/b07pt0hi
 
 星火海外版-TV版：https://yoyodadada.lanzouw.com/b01ddjppc#dhpw 密码:dhpw
 
+西瓜视频：https://yoyodadada.lanzouw.com/b01dlv1tc#6ql0 密码:6ql0
+
+讯飞输入法：https://yoyodadada.lanzouw.com/b01dlv23c#ecn5 密码:ecn5
+
 ## 【Y】
 
 影迷大院：https://yoyodadada.lanzouw.com/b07psplg
@@ -622,3 +638,5 @@ JS脚本：https://yoyodadada.lanzouw.com/b01d4y3xe#6jnn 密码:6jnn
 12306抢票类应用：https://yoyodadada.lanzouw.com/b01d6hf4h#b70k 密码:b70k
 
 360工具：https://yoyodadada.lanzouw.com/b01dk67eh#busr 密码:busr
+
+百度文库工具：https://yoyodadada.lanzouw.com/b01dlv3rc#1a5z 密码:1a5z
