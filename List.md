@@ -155,7 +155,7 @@ FreeDTV-TV版：https://yoyodadada.lanzouw.com/b01d558eh#3ml6 密码:3ml6
 
 高德地图：https://yoyodadada.lanzouw.com/b07psqne （包含全部版本，超过100MB的以txt形式分享下载链接，源文件下载链接在下端。）
 
-    超过100MB文件下载地址：https://www.123pan.com/s/JceA-CUfi 
+    超过100MB文件下载地址：https://www.123pan.com/s/JceA-CUfi ；https://www.bytepan.com/17zVuUbYv4F
 
 格式工厂-PC版：https://yoyodadada.lanzouw.com/b01c4aymj#5b45 密码:5b45
 
