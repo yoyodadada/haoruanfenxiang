@@ -489,6 +489,7 @@ WPS：https://yoyodadada.lanzouw.com/b07pspuf
 
     v3.3.0.55~v3.4.0.31及v3.5.0.20及以后版本下载地址：https://zijieyunpan.com/UxpCk1F8h72
     v3.4.0.37~v3.4.5.45下载地址：https://www.123pan.com/s/JceA-EUfi 
+    其他版本下载地址：https://pan.bilnn.cn/s/1OQnSn
 
 卧龙影视：https://yoyodadada.lanzouw.com/b01bdfw2f
 
