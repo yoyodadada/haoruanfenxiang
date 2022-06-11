@@ -462,7 +462,7 @@ WPS：https://yoyodadada.lanzouw.com/b07pspuf
 
 网易云音乐：https://yoyodadada.lanzouw.com/b07psqkb （包含全部版本，超过100MB的以txt形式分享下载链接，源文件下载链接在下端。）
 
-    超过100MB版本下载地址：https://www.123pan.com/s/JceA-0Ufi ； https://www.bytepan.com/TTNpmR4HsWO
+    超过100MB版本下载地址：https://www.123pan.com/s/JceA-0Ufi ； https://www.bytepan.com/TTNpmR4HsWO ； https://pan.bilnn.cn/s/Kwmwi9
 
 悟饭游戏厅：https://yoyodadada.lanzouw.com/b07psqzg
 
