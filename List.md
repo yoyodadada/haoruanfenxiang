@@ -255,6 +255,8 @@ Instander（第三方Instagram）https://yoyodadada.lanzouw.com/b01c7ybcd#e3lv �
 
 酷安：https://yoyodadada.lanzouw.com/b01d9upwb#i4y2 密码:i4y2
 
+夸克：https://yoyodadada.lanzouw.com/b01domlli#8w1g 密码:8w1g
+
 ## 【L】
 
 乐播：https://yoyodadada.lanzouw.com/b07psqbc
