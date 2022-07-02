@@ -127,6 +127,10 @@ COKEMV：https://yoyodadada.lanzouw.com/b01dccxli#8fe2 密码:8fe2
 
 嘀哩嘀哩：https://yoyodadada.lanzouw.com/b01d0c7cb#dcg4 密码:dcg4
 
+抖音：https://pan.quark.cn/s/76d092ec96a3
+
+    蓝奏：https://yoyodadada.lanzouw.com/b01doycpa#c8gz 密码:c8gz（受文件大小及软件自身风险限制，蓝奏仅保存下载地址，实际安装包保存在夸克网盘）
+
 ## 【E】
 
 儿歌多多：https://yoyodadada.lanzouw.com/b07pspsd
