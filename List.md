@@ -464,7 +464,9 @@ wifi万能钥匙：https://yoyodadada.lanzouw.com/b07pspej （包含全部版本
 
 网易公开课：https://yoyodadada.lanzouw.com/b07psphc
 
-WPS：https://yoyodadada.lanzouw.com/b07pspuf
+WPS：https://pan.quark.cn/s/d02962e23d52
+
+    蓝奏：https://yoyodadada.lanzouw.com/b07pspuf （受文件大小限制，超过100MB文件保存在夸克网盘，蓝奏云保存其下载地址。）
 
 完美视频大全：https://yoyodadada.lanzouw.com/b07psq1c
 
