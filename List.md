@@ -290,9 +290,9 @@ MUJI_to_Sleep：https://yoyodadada.lanzouw.com/b07psr6d
 
 美食杰：https://yoyodadada.lanzouw.com/b07psr9g
 
-美柚：https://yoyodadada.lanzouw.com/b07pt0xe
+美柚：https://pan.quark.cn/s/98f497e8391e
 
-    超过100MB文件下载地址：https://pan.quark.cn/s/98f497e8391e
+    蓝奏：https://yoyodadada.lanzouw.com/b07pt0xe （受文件大小限制，超过100MB文件保存在夸克网盘，蓝奏云保存其下载地址。）
 
 魔力视频-TV版：https://yoyodadada.lanzouw.com/b07pt2ng
 
