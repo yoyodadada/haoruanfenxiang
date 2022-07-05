@@ -127,9 +127,7 @@ COKEMV：https://yoyodadada.lanzouw.com/b01dccxli#8fe2 密码:8fe2
 
 嘀哩嘀哩：https://yoyodadada.lanzouw.com/b01d0c7cb#dcg4 密码:dcg4
 
-抖音：https://pan.quark.cn/s/76d092ec96a3
-
-    蓝奏：https://yoyodadada.lanzouw.com/b01doycpa#c8gz 密码:c8gz（受文件大小及软件自身风险限制，蓝奏仅保存下载地址，实际安装包保存在夸克网盘）
+抖音：https://yoyodadada.lanzouw.com/b01doycpa#c8gz 密码:c8gz
 
 ## 【E】
 
@@ -290,9 +288,7 @@ MUJI_to_Sleep：https://yoyodadada.lanzouw.com/b07psr6d
 
 美食杰：https://yoyodadada.lanzouw.com/b07psr9g
 
-美柚：https://pan.quark.cn/s/98f497e8391e
-
-    蓝奏：https://yoyodadada.lanzouw.com/b07pt0xe （受文件大小限制，超过100MB文件保存在夸克网盘，蓝奏云保存其下载地址。）
+美柚：https://yoyodadada.lanzouw.com/b07pt0xe
 
 魔力视频-TV版：https://yoyodadada.lanzouw.com/b07pt2ng
 
@@ -464,9 +460,7 @@ wifi万能钥匙：https://yoyodadada.lanzouw.com/b07pspej （包含全部版本
 
 网易公开课：https://yoyodadada.lanzouw.com/b07psphc
 
-WPS：https://pan.quark.cn/s/d02962e23d52
-
-    蓝奏：https://yoyodadada.lanzouw.com/b07pspuf （受文件大小限制，超过100MB文件保存在夸克网盘，蓝奏云保存其下载地址。）
+WPS：https://yoyodadada.lanzouw.com/b07pspuf
 
 完美视频大全：https://yoyodadada.lanzouw.com/b07psq1c
 
