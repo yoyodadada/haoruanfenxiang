@@ -111,6 +111,8 @@ CIBN聚体育-TV版：https://yoyodadada.lanzouw.com/b01co9mcb#bmux 密码:bmux
 
 COKEMV：https://yoyodadada.lanzouw.com/b01dccxli#8fe2 密码:8fe2
 
+超级ITV-TV版：https://yoyodadada.lanzouw.com/b01dq28vc#1ab4 密码:1ab4
+
 ## 【D】
 
 电视猫-TV版：https://yoyodadada.lanzouw.com/b07pt2dg
@@ -130,6 +132,10 @@ COKEMV：https://yoyodadada.lanzouw.com/b01dccxli#8fe2 密码:8fe2
 嘀哩嘀哩：https://yoyodadada.lanzouw.com/b01d0c7cb#dcg4 密码:dcg4
 
 抖音：https://yoyodadada.lanzouw.com/b01doycpa#c8gz 密码:c8gz
+
+Defender.Tools-PC版：https://yoyodadada.lanzouw.com/b01dq25xg#a986 密码:a986
+
+冬瓜影视-TV版：https://yoyodadada.lanzouw.com/b01dq2dpg#fm73 密码:fm73
 
 ## 【E】
 
@@ -194,8 +200,6 @@ HDP直播-TV版：https://yoyodadada.lanzouw.com/b07qdysd
 HashMyFiles-PC版：https://yoyodadada.lanzouw.com/b01czjckf#4mp7 密码:4mp7
 
 火龙果影视：https://yoyodadada.lanzouw.com/b01d74z7i#eyu2 密码:eyu2
-
-火绒-PC版：https://yoyodadada.lanzouw.com/b01d9ujoh#ds0v 密码:ds0v
 
 红茶影视：https://yoyodadada.lanzouw.com/b01da4wef#a3ds 密码:a3ds
 
@@ -406,6 +410,10 @@ SoftCnKiller-PC版（一款流氓软件清理工具）：https://yoyodadada.lanz
 
 SGImini-PC版：https://yoyodadada.lanzouw.com/b01dlv4hi#68tw 密码:68tw
 
+skylark-PC版：https://yoyodadada.lanzouw.com/b01dq24uh#cb11 密码:cb11
+
+水星TV-TV版：https://yoyodadada.lanzouw.com/b01dq28bc#blgc 密码:blgc
+
 ## 【T】
 
 腾讯视频：https://yoyodadada.lanzouw.com/b07psoqf （包含全部版本，超过100MB的以txt形式分享下载链接，源文件下载链接在下端。）
@@ -514,6 +522,8 @@ WinRAR-PC版：https://yoyodadada.lanzouw.com/b01cdgqih#252n 密码:252n
     
 网易云音乐-PC版：https://yoyodadada.lanzouw.com/b01d9q8pi#cisa 密码:cisa
 
+Windows系统调校-PC版：https://yoyodadada.lanzouw.com/b01dq265e#6abe 密码:6abe
+
 ## 【X】
 
 香哈菜谱：https://yoyodadada.lanzouw.com/b07psouj
@@ -552,7 +562,7 @@ X-Plore：https://yoyodadada.lanzouw.com/b07pt0hi
 
 小鸡模拟器：https://yoyodadada.lanzouw.com/b01d0c7uj#7j31 密码:7j31
 
-小鸡模拟器TV版-TV版：https://yoyodadada.lanzouw.com/b01d4y8wd#7kgp 密码:7kgp
+小鸡模拟器-TV版：https://yoyodadada.lanzouw.com/b01d4y8wd#7kgp 密码:7kgp
 
 小鲸电视-TV版：https://yoyodadada.lanzouw.com/b01d74zpg#514k 密码:514k
 
@@ -563,6 +573,8 @@ X-Plore：https://yoyodadada.lanzouw.com/b07pt0hi
 西瓜视频：https://yoyodadada.lanzouw.com/b01dlv1tc#6ql0 密码:6ql0
 
 讯飞输入法：https://yoyodadada.lanzouw.com/b01dlv23c#ecn5 密码:ecn5
+
+小苹果影视-TV版：https://yoyodadada.lanzouw.com/b01dq2def#7sol 密码:7sol
 
 ## 【Y】
 
@@ -599,6 +611,8 @@ YouTube_Vanced：https://yoyodadada.lanzouw.com/b07psqvc
 一起看TV-TV版：https://yoyodadada.lanzouw.com/b01czr1qd#8p4l 密码:8p4l
 
 YouKnow-TV版：https://yoyodadada.lanzouw.com/b01d1ng2h#5mju 密码:5mju
+
+云海电视-TV版：https://yoyodadada.lanzouw.com/b01dq2e8f#4p6b 密码:4p6b
 
 ## 【Z】
 
@@ -647,3 +661,5 @@ JS脚本：https://yoyodadada.lanzouw.com/b01d4y3xe#6jnn 密码:6jnn
 360工具：https://yoyodadada.lanzouw.com/b01dk67eh#busr 密码:busr
 
 百度文库工具：https://yoyodadada.lanzouw.com/b01dlv3rc#1a5z 密码:1a5z
+
+火绒工具：https://yoyodadada.lanzouw.com/b01dq24yb#aw9q 密码:aw9q
