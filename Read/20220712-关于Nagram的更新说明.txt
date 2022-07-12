@@ -1,0 +1,2 @@
+20220712-关于Nagram的更新说明：
+Nagram是基于NekoX制作的第三方Telegram客户端，用户不多，比较小众，但相比NekoX多了一些增强型功能，但此软件bug较多，测试版更新频繁，即日起，本项目只更新Nagram的正式版，测试版如各位需要，请自行加入官方TG频道获取：https://t.me/nagram_channel 。
