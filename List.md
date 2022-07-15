@@ -34,7 +34,7 @@ AnyTXT.Searcher-PC版：https://yoyodadada.lanzouw.com/b01dlv3ej#6imc 密码:6im
 
 阿里云盘：https://yoyodadada.lanzouw.com/b01dqeaqb#9jtt 密码:9jtt（包含全部版本，超过100MB的以txt形式分享下载链接，源文件下载链接在下端。）
 
-    超过100MB文件下载地址：https://www.bytepan.com/Bpcvqytv4CO
+    超过100MB文件下载地址：https://www.bytepan.com/Bpcvqytv4CO ； https://www.123pan.com/s/JceA-k6fi
 
 ## 【B】
 
