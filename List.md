@@ -32,6 +32,8 @@ AirPin-TV版：https://yoyodadada.lanzouw.com/b07pt2jc
 
 AnyTXT.Searcher-PC版：https://yoyodadada.lanzouw.com/b01dlv3ej#6imc 密码:6imc
 
+阿里云盘：https://yoyodadada.lanzouw.com/b01dqeaqb#9jtt 密码:9jtt
+
 ## 【B】
 
 百度网盘：https://yoyodadada.lanzouw.com/b07pspid （包含全部版本，超过100MB的以txt形式分享下载链接，源文件下载链接在下端。）
