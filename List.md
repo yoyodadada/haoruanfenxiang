@@ -141,6 +141,8 @@ COKEMV：https://yoyodadada.lanzouw.com/b01dccxli#8fe2 密码:8fe2
 
 抖音：https://yoyodadada.lanzouw.com/b01doycpa#c8gz 密码:c8gz
 
+    超过100MB文件下载地址：https://www.bytepan.com/Wmp0ozhw1zN
+
 Defender.Tools-PC版：https://yoyodadada.lanzouw.com/b01dq25xg#a986 密码:a986
 
 冬瓜影视-TV版：https://yoyodadada.lanzouw.com/b01dq2dpg#fm73 密码:fm73
@@ -589,6 +591,8 @@ X-Plore：https://yoyodadada.lanzouw.com/b07pt0hi
 影迷大院：https://yoyodadada.lanzouw.com/b07psplg
 
 YouTube_Vanced：https://yoyodadada.lanzouw.com/b07psqvc
+
+    超过100MB文件下载地址：https://www.bytepan.com/frOb7p0re7q
 
 优酷视频：https://yoyodadada.lanzouw.com/b07psreb
 
