@@ -38,6 +38,8 @@ AnyTXT.Searcher-PC版：https://yoyodadada.lanzouw.com/b01dlv3ej#6imc 密码:6im
 
 安兔兔评测：https://yoyodadada.lanzouw.com/b01dqebqh#i8rh 密码:i8rh
 
+AdGuard：https://yoyodadada.lanzouw.com/b01dqpheh#5lr9 密码:5lr9
+
 ## 【B】
 
 百度网盘：https://yoyodadada.lanzouw.com/b07pspid （包含全部版本，超过100MB的以txt形式分享下载链接，源文件下载链接在下端。）
