@@ -239,6 +239,8 @@ Instander（第三方Instagram）https://yoyodadada.lanzouw.com/b01c7ybcd#e3lv �
 
 京东：https://yoyodadada.lanzouw.com/b01ayf0ub
 
+    超过100MB文件下载地址：https://www.bytepan.com/1s9y3DmVwMO
+
 加菲猫影视：https://yoyodadada.lanzouw.com/b01c34dpe#hgmh 密码:hgmh
 
 9亿TV-TV版：https://yoyodadada.lanzouw.com/b01co9mmb#f10w 密码:f10w
