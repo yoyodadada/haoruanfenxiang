@@ -668,7 +668,7 @@ PC端应用：https://yoyodadada.lanzouw.com/b01c63npg#er0q 密码:er0q （包�
 
 考试类应用：https://yoyodadada.lanzouw.com/b01cdh9qj#c80i 密码:c80i
 
-    部分超过100MB软件下载地址：https://www.bytepan.com/2DMvMXNZhie
+    部分超过100MB软件下载地址：https://www.bytepan.com/2DMvMXNZhie ；https://www.123pan.com/s/JceA-2yfi
 
 OCR文字识别：https://yoyodadada.lanzouw.com/b01csyvfc#7t2l 密码:7t2l
 
