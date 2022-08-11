@@ -1,0 +1,11 @@
+一些已知作者但签名未标注的签名信息
+使用MT管理器默认签名的应用：
+Serial number：936eacbe07f201df
+
+MT小程：
+Serial number：40452752、1411299a
+Issuer：C=CN
+
+wushidi：
+Serial number：1753fe3a436
+Issuer：C=CN
