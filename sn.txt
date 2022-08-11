@@ -29,9 +29,11 @@ CN：zhou
 
 MT小程：
 SN：40452752、1411299a
+C：CN
 
 wushidi：
 SN：1753fe3a436
+C：CN
 
 宇宙之辰：
 SN：2b164c0f
@@ -64,3 +66,27 @@ CN：明沐
 iKirby：
 SN：7cfe8fc2
 CN：ori
+
+WST：
+SN：173f907156e
+CN：WSTxsa
+
+np：
+SN：45ff9a3
+CN：np
+
+OsitKP：
+SN：bc04578
+C：CN
+
+rikkati：
+SN：e6fcbbb
+C：CN
+
+AlexaLiza
+SN：56c9d6b1
+CN：AlexaLiza
+
+youarefinished：
+SN：6391bab
+CN：youarefinished
