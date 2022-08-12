@@ -28,7 +28,7 @@ SN：12f8bfa
 CN：zhou
 
 MT小程：
-SN：40452752、1411299a
+SN：40452752、1411299a、4c18e13
 C：CN
 
 wushidi：
