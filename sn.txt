@@ -23,6 +23,10 @@ iKirby：
 SN：7cfe8fc2
 CN：ori
 
+JK
+SN：5d10745d1
+CN：破解：JK
+
 MixRoot：
 SN：4aed7320
 CN：IN
