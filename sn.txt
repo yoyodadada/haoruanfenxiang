@@ -3,6 +3,10 @@
 使用MT管理器默认签名的应用：
 SN：936eacbe07f201df
 
+Alex
+SN：ec5eedd3d6da04f7
+CN:Alex
+
 AlexaLiza
 SN：56c9d6b1
 CN：AlexaLiza
