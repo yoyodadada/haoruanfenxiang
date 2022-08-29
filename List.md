@@ -498,7 +498,7 @@ WPS：https://yoyodadada.lanzouw.com/b07pspuf
 
 微博国际版：https://yoyodadada.lanzouw.com/b07pxk9e
 
-    大于100MB文件下载地址：https://www.bytepan.com/i3ptnAqdR5m ； https://www.123pan.com/s/JceA-Pifi
+    大于100MB文件下载地址：https://www.bytepan.com/XixoWMROTQo ； https://www.123pan.com/s/JceA-Pifi
 
 微软常用运行库合集-PC版：https://yoyodadada.lanzouw.com/b07pycad
 
