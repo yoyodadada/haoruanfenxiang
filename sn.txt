@@ -3,6 +3,10 @@
 使用MT管理器默认签名的应用：
 SN：936eacbe07f201df
 
+使用lsp内置模块的应用：
+SN：5ecdfb71
+CN：xiawanli
+
 Alex
 SN：ec5eedd3d6da04f7
 CN:Alex
@@ -62,10 +66,6 @@ CN：WSTxsa
 wushidi：
 SN：1753fe3a436
 C：CN
-
-xiawanli
-SN：5ecdfb71
-CN：xiawanli
 
 youarefinished：
 SN：6391bab
