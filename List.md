@@ -596,7 +596,7 @@ X-Plore：https://yoyodadada.lanzouw.com/b07pt0hi
 
 影迷大院：https://yoyodadada.lanzouw.com/b07psplg
 
-YouTube_Vanced：https://yoyodadada.lanzouw.com/b07psqvc
+YouTube：https://yoyodadada.lanzouw.com/b07psqvc
 
     超过100MB文件下载地址：https://www.bytepan.com/frOb7p0re7q
 
