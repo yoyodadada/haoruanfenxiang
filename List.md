@@ -500,7 +500,7 @@ WPS：https://yoyodadada.lanzouw.com/b07pspuf
 
 完美视频大全-TV版：https://yoyodadada.lanzouw.com/b07pt2ad
 
-微博国际版：https://yoyodadada.lanzouw.com/b07pxk9e
+微博：https://yoyodadada.lanzouw.com/b07pxk9e
 
     大于100MB文件下载地址：https://www.bytepan.com/XixoWMROTQo ； https://www.123pan.com/s/JceA-Pifi
 
