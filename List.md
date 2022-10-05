@@ -364,6 +364,8 @@ Pure Tuber（绿油管，去广告解锁VIP）：https://yoyodadada.lanzouw.com/
 
 QQ音乐：https://yoyodadada.lanzouw.com/b07psr3a
 
+    超过100MB文件下载地址：https://www.bytepan.com/1dhkRT2V4nk
+
 蜻蜓FM：https://yoyodadada.lanzouw.com/b07pt0ta
 
 QQ轻聊版：https://yoyodadada.lanzouw.com/b07ptrve
