@@ -23,9 +23,17 @@ H2SO3：
 SN：11ff31ef
 CN：liuzhe
 
+IBH
+SN：6509c8f6
+CN：IBH
+
 iKirby：
 SN：7cfe8fc2
 CN：ori
+
+Jenny66
+SN：75537bcc
+CN：Jenny66
 
 JK
 SN：5d10745d1
