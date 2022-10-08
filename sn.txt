@@ -15,6 +15,10 @@ AlexaLiza
 SN：56c9d6b1
 CN：AlexaLiza
 
+AWAvenue
+SN：4b85c92b
+CN：FUZE
+
 Balatan：
 SN：b38fbad3
 CN：rockz5555
