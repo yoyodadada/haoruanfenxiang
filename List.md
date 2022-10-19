@@ -181,6 +181,8 @@ FreeDTV-TV版：https://yoyodadada.lanzouw.com/b01d558eh#3ml6 密码:3ml6
 
 格式工厂-PC版：https://yoyodadada.lanzouw.com/b01c4aymj#5b45 密码:5b45
 
+Google Play商店：https://yoyodadada.lanzouw.com/b01e2aqla#8n64 密码:8n64
+
 ## 【H】
 
 海星模拟器：https://yoyodadada.lanzouw.com/b07psppa
