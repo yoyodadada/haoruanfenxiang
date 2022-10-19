@@ -27,6 +27,10 @@ H2SO3：
 SN：11ff31ef
 CN：liuzhe
 
+hasoe
+SN：6f97a872
+CN：hasoe
+
 IBH
 SN：6509c8f6
 CN：IBH
