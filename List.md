@@ -382,7 +382,7 @@ QQ轻聊版-PC版：https://yoyodadada.lanzouw.com/b07pv65e
 
 QQ：https://yoyodadada.lanzouw.com/b01b6ay1e （包含全部版本，超过100MB的以txt形式分享下载链接，源文件下载链接在下端。）
 
-    v8.7.8、v8.8.28.6155下载地址：https://zijieyunpan.com/4o1nE3ssDpJ ； 其余超过100MB文件下载地址：https://www.123pan.com/s/JceA-Lifi
+    v8.7.8、v8.8.28.6155下载地址：https://zijieyunpan.com/4o1nE3ssDpJ ； 其余超过100MB文件下载地址：https://www.123pan.com/s/JceA-Lifi 、 https://ihcloud.net/s/QdlntY
 
 QQ-PC版：https://yoyodadada.lanzouw.com/b01b7fkvg
 
