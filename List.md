@@ -287,6 +287,8 @@ Instander（第三方Instagram）https://yoyodadada.lanzouw.com/b01c7ybcd#e3lv �
 
 Kodi：https://yoyodadada.lanzouw.com/b01e3tgxc#a9v3 密码:a9v3
 
+可视TV.Max-TV版：https://yoyodadada.lanzouw.com/b01e3u2de#6bil 密码:6bil
+
 ## 【L】
 
 乐播：https://yoyodadada.lanzouw.com/b07psqbc
