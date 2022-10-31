@@ -42,7 +42,7 @@ AnyTXT.Searcher-PC版：https://yoyodadada.lanzouw.com/b01dlv3ej#6imc 密码:6im
 
 AdGuard：https://yoyodadada.lanzouw.com/b01dqpheh#5lr9 密码:5lr9
 
-阿里云盘webdav-TV版：https://yoyodadada.lanzouw.com/b01dyovyd#4wsd 密码:4wsd
+阿里云盘webdav：https://yoyodadada.lanzouw.com/b01dyovyd#4wsd 密码:4wsd
 
 ## 【B】
 
