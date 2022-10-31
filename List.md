@@ -472,6 +472,10 @@ TV影院-TV版：https://yoyodadada.lanzouw.com/b01c4pi6h#al8e 密码:al8e
 
 天天听书：https://yoyodadada.lanzouw.com/b01dlv1gj#fet3 密码:fet3
 
+TikTok：https://yoyodadada.lanzouw.com/b01e3tiof#f1a8 密码:f1a8
+
+    超过100MB文件下载地址：https://www.123pan.com/s/JceA-Uhai ； https://www.bytepan.com/FxV1Z8KoKgX
+
 ## 【U】
 
 UnblockMusic：https://yoyodadada.lanzouw.com/b01aya7ad
