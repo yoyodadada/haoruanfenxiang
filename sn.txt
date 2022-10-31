@@ -51,6 +51,10 @@ MixRoot：
 SN：4aed7320
 CN：IN
 
+msm8976
+SN：160dad52
+CN：msm8976
+
 MT小程：
 SN：40452752、1411299a、4c18e13
 C：CN
