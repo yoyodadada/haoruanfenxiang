@@ -674,7 +674,7 @@ YouKnow-TV版：https://yoyodadada.lanzouw.com/b01d1ng2h#5mju 密码:5mju
 
 驱动管理类：https://yoyodadada.lanzouw.com/b01bwkyqf
 
-    超过100MB软件下载地址：https://www.123pan.com/s/JceA-3zfi
+    超过100MB软件下载地址：https://www.123pan.com/s/JceA-3zfi ； https://www.bytepan.com/oPSq7zN1hBg
 
 TV、盒子端应用：https://yoyodadada.lanzouw.com/b01bwl23g
 
