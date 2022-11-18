@@ -496,6 +496,8 @@ Village：https://yoyodadada.lanzouw.com/b07skzmh
 
 VMOS：https://yoyodadada.lanzouw.com/b01dal5wd#4il0 密码：4il0
 
+    超过100MB版本下载地址：https://www.123pan.com/s/JceA-NAai
+
 ## 【W】
 
 wifi万能钥匙：https://yoyodadada.lanzouw.com/b07pspej （包含全部版本，超过100MB的以txt形式分享下载链接，源文件下载链接在下端。）
