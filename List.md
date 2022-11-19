@@ -151,6 +151,8 @@ Defender.Tools-PC版：https://yoyodadada.lanzouw.com/b01dq25xg#a986 密码:a986
 
 冬瓜影视-TV版：https://yoyodadada.lanzouw.com/b01dq2dpg#fm73 密码:fm73
 
+蛋播星球：https://yoyodadada.lanzouw.com/b01e6iumh#5kuf 密码:5kuf
+
 ## 【E】
 
 儿歌多多：https://yoyodadada.lanzouw.com/b07pspsd
@@ -225,6 +227,8 @@ HashMyFiles-PC版：https://yoyodadada.lanzouw.com/b01czjckf#4mp7 密码:4mp7
 
 黑盒：https://yoyodadada.lanzouw.com/b01dduryj#3fi8 密码:3fi8
 
+HeTool-TV版：https://yoyodadada.lanzouw.com/b01e6iova#hyy5 密码:hyy5
+
 ## 【I】
 
 Instagram：https://yoyodadada.lanzouw.com/b07psope
@@ -240,6 +244,8 @@ IT之家：https://yoyodadada.lanzouw.com/b01bwl4kf
 IDM-PC版：https://yoyodadada.lanzouw.com/b01c4az3g#4v3k 密码:4v3k
 
 Instander（第三方Instagram）https://yoyodadada.lanzouw.com/b01c7ybcd#e3lv 密码:e3lv
+
+i酷影视-TV版：https://yoyodadada.lanzouw.com/b01e6ilne#897r 密码:897r
 
 ## 【J】
 
@@ -266,6 +272,8 @@ Instander（第三方Instagram）https://yoyodadada.lanzouw.com/b01c7ybcd#e3lv �
 剪映：https://yoyodadada.lanzouw.com/b01d0c7la#i63s 密码:i63s
 
 橘子视频：https://yoyodadada.lanzouw.com/b01dqqwgf#f8ql 密码:f8ql
+
+剧白白：https://yoyodadada.lanzouw.com/b01e6itwb#i5g1 密码:i5g1
 
 ## 【K】
 
@@ -338,6 +346,8 @@ MyRadio：https://yoyodadada.lanzouw.com/b01cwgf7e#eg66 密码:eg66
 
 蚂蚁市场-TV版：https://yoyodadada.lanzouw.com/b01e3u3da#6la0 密码:6la0
 
+秒看电视-TV版：https://yoyodadada.lanzouw.com/b01e6io6f#1j59 密码:1j59
+
 ## 【N】
 
 南瓜影视：https://yoyodadada.lanzouw.com/b07vzgfe
@@ -398,6 +408,8 @@ QQ-PC版：https://yoyodadada.lanzouw.com/b01b7fkvg
 
 清浊：https://yoyodadada.lanzouw.com/b01ca6r5c#f1pr 密码:f1pr
 
+QQ邮箱：https://yoyodadada.lanzouw.com/b01e6ir3a#frth 密码:frth
+
 ## 【R】
 
 日期计算器-PC版：https://yoyodadada.lanzouw.com/b07pv60j
@@ -407,6 +419,10 @@ rufus-PC版：https://yoyodadada.lanzouw.com/b07rx88d
 人人视频：https://yoyodadada.lanzouw.com/b01bh2x6b
 
 RevokeMsgPatcher-PC版（PC版微信QQTIM防撤回补丁）：https://yoyodadada.lanzouw.com/b01dbslaf#6hjg 密码:6hjg
+
+RAR：https://yoyodadada.lanzouw.com/b01e6irif#7cy4 密码:7cy4
+
+Resume Builder：https://yoyodadada.lanzouw.com/b01e6isng#313d 密码:313d
 
 ## 【S】
 
@@ -483,6 +499,8 @@ TV影院-TV版：https://yoyodadada.lanzouw.com/b01c4pi6h#al8e 密码:al8e
 TikTok：https://yoyodadada.lanzouw.com/b01e3tiof#f1a8 密码:f1a8
 
     超过100MB文件下载地址：https://www.123pan.com/s/JceA-Uhai ； https://www.bytepan.com/FxV1Z8KoKgX
+    
+特狗影视：https://yoyodadada.lanzouw.com/b01e6iubg#casj 密码:casj
 
 ## 【U】
 
@@ -563,6 +581,8 @@ WinRAR-PC版：https://yoyodadada.lanzouw.com/b01cdgqih#252n 密码:252n
 网易云音乐-PC版：https://yoyodadada.lanzouw.com/b01d9q8pi#cisa 密码:cisa
 
 Windows系统调校-PC版：https://yoyodadada.lanzouw.com/b01dq265e#6abe 密码:6abe
+
+win10优化小工具-PC版：https://yoyodadada.lanzouw.com/b01e6ijod#e99a 密码:e99a
 
 ## 【X】
 
@@ -655,6 +675,10 @@ YouTube：https://yoyodadada.lanzouw.com/b07psqvc
 YouKnow-TV版：https://yoyodadada.lanzouw.com/b01d1ng2h#5mju 密码:5mju
 
 云海电视-TV版：https://yoyodadada.lanzouw.com/b01dq2e8f#4p6b 密码:4p6b
+
+央视影音-PC版：https://yoyodadada.lanzouw.com/b01e6ik5a#684c 密码:684c
+
+柚子影视：https://yoyodadada.lanzouw.com/b01e6iuza#4bdq 密码:4bdq
 
 ## 【Z】
 
