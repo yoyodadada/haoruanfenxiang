@@ -414,6 +414,8 @@ QQ-PC版：https://yoyodadada.lanzouw.com/b01b7fkvg
 
 QQ邮箱：https://yoyodadada.lanzouw.com/b01e6ir3a#frth 密码:frth
 
+全剧得：https://yoyodadada.lanzouw.com/b01e8ptpi#1p3d 密码:1p3d
+
 ## 【R】
 
 日期计算器-PC版：https://yoyodadada.lanzouw.com/b07pv60j
