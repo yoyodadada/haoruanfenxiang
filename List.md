@@ -642,6 +642,8 @@ X-Plore：https://yoyodadada.lanzouw.com/b07pt0hi
 
 小苹果影视-TV版：https://yoyodadada.lanzouw.com/b01dq2def#7sol 密码:7sol
 
+小白云盘TV-TV版：https://yoyodadada.lanzouw.com/b01e8pw0b#b6wq 密码:b6wq
+
 ## 【Y】
 
 影迷大院：https://yoyodadada.lanzouw.com/b07psplg
