@@ -97,6 +97,8 @@ BiuBiuTV-TV版：https://yoyodadada.lanzouw.com/b01d4y57a#flay 密码:flay
 
 哔嘀影视：https://yoyodadada.lanzouw.com/b01d4yang#dbmf 密码:dbmf
 
+BV-TV版（可看8K和杜比视界的第三方哔哩哔哩）：https://yoyodadada.lanzouw.com/b01eaalbi#hzok 密码:hzok
+
 ## 【C】
 
 Calc_Business（卡西欧科学计算器）：https://yoyodadada.lanzouw.com/b07psqyf
