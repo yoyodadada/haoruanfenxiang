@@ -558,8 +558,6 @@ WPS：https://yoyodadada.lanzouw.com/b07pspuf
 
 微软常用运行库合集-PC版：https://yoyodadada.lanzouw.com/b07pycad
 
-    大于100MB文件下载地址：https://www.123pan.com/s/JceA-Bfai
-
 微软.NET离线运行库合集-PC版：https://yoyodadada.lanzouw.com/b07pycbe
 
     2021.10.15及以后版本下载地址：https://www.123pan.com/s/JceA-wUfi 
