@@ -696,6 +696,8 @@ YouKnow-TV版：https://yoyodadada.lanzouw.com/b01d1ng2h#5mju 密码:5mju
 
 柚子影视：https://yoyodadada.lanzouw.com/b01e6iuza#4bdq 密码:4bdq
 
+野火直播-TV版：https://yoyodadada.lanzouw.com/b01ed0mij#anud 密码:anud
+
 ## 【Z】
 
 支付宝：https://yoyodadada.lanzouw.com/b07psrmj
