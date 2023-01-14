@@ -101,7 +101,7 @@ BiuBiuTV-TV版：https://yoyodadada.lanzouw.com/b01d4y57a#flay 密码:flay
 
 BV-TV版（可看8K和杜比视界的第三方哔哩哔哩）：https://yoyodadada.lanzouw.com/b01eaalbi#hzok 密码:hzok
 
-BBLL-TV版：https://yoyodadada.lanzouw.com/b01ee4bte#5ie8 密码:5ie8
+BBLL-TV版（一个第三方哔哩哔哩TV和Pad客户端）：https://yoyodadada.lanzouw.com/b01ee4bte#5ie8 密码:5ie8
 
 ## 【C】
 
