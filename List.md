@@ -332,6 +332,8 @@ Kodi：https://yoyodadada.lanzouw.com/b01e3tgxc#a9v3 密码:a9v3
 
 MX_Player：https://yoyodadada.lanzouw.com/b07psqab
 
+    超过100MB文件下载地址https://www.123pan.com/s/JceA-uMai
+
 MUJI_to_Sleep：https://yoyodadada.lanzouw.com/b07psr6d
 
 美食杰：https://yoyodadada.lanzouw.com/b07psr9g
@@ -434,7 +436,7 @@ RevokeMsgPatcher-PC版（PC版微信QQTIM防撤回补丁）：https://yoyodadada
 
 RAR：https://yoyodadada.lanzouw.com/b01e6irif#7cy4 密码:7cy4
 
-Resume Builder：https://yoyodadada.lanzouw.com/b01e6isng#313d 密码:313d
+Resume Builder（简历生成器）：https://yoyodadada.lanzouw.com/b01e6isng#313d 密码:313d
 
 ## 【S】
 
