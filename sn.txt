@@ -3,6 +3,10 @@
 使用MT管理器默认签名的应用：
 SN：936eacbe07f201df
 
+使用NP管理器签名的应用：
+SN：45ff9a3
+CN：np
+
 使用lsp内置模块的应用：
 SN：5ecdfb71
 CN：xiawanli
@@ -58,10 +62,6 @@ CN：msm8976
 MT小程：
 SN：40452752、1411299a、4c18e13
 C：CN
-
-np：
-SN：45ff9a3
-CN：np
 
 OsitKP：
 SN：bc04578
