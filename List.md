@@ -668,6 +668,8 @@ X-Plore：https://yoyodadada.lanzouw.com/b07pt0hi
 
 小白云盘TV-TV版：https://yoyodadada.lanzouw.com/b01e8pw0b#b6wq 密码:b6wq
 
+小白云盘-PC版：https://yoyodadada.lanzouw.com/b01ens4of#hs5g 密码:hs5g
+
 ## 【Y】
 
 影迷大院：https://yoyodadada.lanzouw.com/b07psplg
