@@ -81,7 +81,7 @@ CN：zzh
 
 WST：
 SN：173f907156e
-CN：WSTxsa
+CN：WSTxda
 
 wushidi：
 SN：1753fe3a436
@@ -103,6 +103,10 @@ CN：zhou
 百日萌新：
 SN：20160c11
 CN：百日、萌新
+
+蒂落：
+SN：400d8007
+C：
 
 耗子：
 SN：37b3b231
