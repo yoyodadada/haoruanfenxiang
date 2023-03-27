@@ -442,6 +442,8 @@ RAR：https://yoyodadada.lanzouw.com/b01e6irif#7cy4 密码:7cy4
 
 Resume Builder（简历生成器）：https://yoyodadada.lanzouw.com/b01e6isng#313d 密码:313d
 
+如意TV-TV版（云星日记二改的TVBox，内置多条接口）：https://yoyodadada.lanzouw.com/b01eobroh#887t 密码:887t
+
 ## 【S】
 
 SpeedTest：https://yoyodadada.lanzouw.com/b07psq6h
