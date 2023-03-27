@@ -161,6 +161,8 @@ Defender.Tools-PC版：https://yoyodadada.lanzouw.com/b01dq25xg#a986 密码:a986
 
 当贝播放器-TV版：https://yoyodadada.lanzouw.com/b01ehpgfe#2sso 密码:2sso
 
+Dism++-PC版：https://yoyodadada.lanzouw.com/b01eoaeod#a710 密码:a710
+
 ## 【E】
 
 儿歌多多：https://yoyodadada.lanzouw.com/b07pspsd
