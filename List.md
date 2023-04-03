@@ -454,6 +454,8 @@ SD_Maid：https://yoyodadada.lanzouw.com/b07pt0fg
 
 扫描全能王：https://yoyodadada.lanzouw.com/b07pt10h
 
+    超过100MB文件下载地址：https://zijieyunpan.cn/k5pQ9EPUjir
+
 搜狗输入法-PC版：https://yoyodadada.lanzouw.com/b07pv5xg
 
 SpeedPan-PC版：https://yoyodadada.lanzouw.com/b07qbfze
