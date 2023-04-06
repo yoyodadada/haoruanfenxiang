@@ -338,7 +338,7 @@ Kodi：https://yoyodadada.lanzouw.com/b01e3tgxc#a9v3 密码:a9v3
 
 MX_Player：https://yoyodadada.lanzouw.com/b07psqab
 
-    超过100MB文件下载地址https://www.123pan.com/s/JceA-uMai
+    超过100MB文件下载地址https://www.123pan.com/s/JceA-uMai ； https://zijieyunpan.cn/aKhRfMvvyFY
 
 MUJI_to_Sleep：https://yoyodadada.lanzouw.com/b07psr6d
 
