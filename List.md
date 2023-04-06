@@ -46,6 +46,8 @@ AdGuard：https://yoyodadada.lanzouw.com/b01dqpheh#5lr9 密码:5lr9
 
 阿里云盘webdav：https://yoyodadada.lanzouw.com/b01dyovyd#4wsd 密码:4wsd
 
+阿里云盘小白羊-PC版：https://yoyodadada.lanzouw.com/b01ept66h#9aee 密码:9aee
+
 ## 【B】
 
 百度网盘：https://yoyodadada.lanzouw.com/b07pspid （包含全部版本，超过100MB的以txt形式分享下载链接，源文件下载链接在下端。）
