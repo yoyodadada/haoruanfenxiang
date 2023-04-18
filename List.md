@@ -30,8 +30,6 @@ AirPin-TV版：https://yoyodadada.lanzouw.com/b07pt2jc
 
 阿里云盘-PC版：https://yoyodadada.lanzouw.com/b01dlv32h#f4po 密码:f4po
 
-    超过100MB文件下载地址：https://zijieyunpan.cn/PP4UPshxEtO
-
 AnyTXT.Searcher-PC版：https://yoyodadada.lanzouw.com/b01dlv3ej#6imc 密码:6imc
 
     超过100MB文件下载地址：https://www.123pan.com/s/JceA-8hai
@@ -47,6 +45,8 @@ AdGuard：https://yoyodadada.lanzouw.com/b01dqpheh#5lr9 密码:5lr9
 阿里云盘webdav：https://yoyodadada.lanzouw.com/b01dyovyd#4wsd 密码:4wsd
 
 阿里云盘小白羊-PC版：https://yoyodadada.lanzouw.com/b01ept66h#9aee 密码:9aee
+
+    超过100MB文件下载地址：https://zijieyunpan.cn/PP4UPshxEtO
 
 ## 【B】
 
