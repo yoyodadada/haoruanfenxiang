@@ -105,6 +105,8 @@ BV-TV版（可看8K和杜比视界的第三方哔哩哔哩）：https://yoyodada
 
 BBLL-TV版（一个第三方哔哩哔哩TV和Pad客户端）：https://yoyodadada.lanzouw.com/b01ee4bte#5ie8 密码:5ie8
 
+BiliYou（第三方哔哩哔哩）：https://yoyodadada.lanzouw.com/b01eslkpa#1lwq 密码:1lwq
+
 ## 【C】
 
 Calc_Business（卡西欧科学计算器）：https://yoyodadada.lanzouw.com/b07psqyf
