@@ -71,6 +71,10 @@ rikkati：
 SN：e6fcbbb
 C：CN
 
+simba：
+SN：6b83f7a9
+C:CN
+
 Soldier：
 SN：3d408914
 C：CN
