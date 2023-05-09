@@ -372,6 +372,8 @@ MyRadio：https://yoyodadada.lanzouw.com/b01cwgf7e#eg66 密码:eg66
 
 秒看电视-TV版：https://yoyodadada.lanzouw.com/b01e6io6f#1j59 密码:1j59
 
+MPV-PC版：https://yoyodadada.lanzouw.com/b01eu8vmh#3nob 密码:3nob
+
 ## 【N】
 
 南瓜影视：https://yoyodadada.lanzouw.com/b07vzgfe
