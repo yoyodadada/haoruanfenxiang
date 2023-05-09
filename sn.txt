@@ -27,6 +27,10 @@ Balatan：
 SN：b38fbad3
 CN：rockz5555
 
+dio：
+SN：6b83f7a9
+C:CN
+
 H2SO3：
 SN：11ff31ef
 CN：liuzhe
@@ -70,10 +74,6 @@ C：CN
 rikkati：
 SN：e6fcbbb
 C：CN
-
-simba：
-SN：6b83f7a9
-C:CN
 
 Soldier：
 SN：3d408914
