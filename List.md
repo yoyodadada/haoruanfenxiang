@@ -47,6 +47,8 @@ AdGuard：https://yoyodadada.lanzouw.com/b01dqpheh#5lr9 密码:5lr9
 阿里云盘小白羊-PC版：https://yoyodadada.lanzouw.com/b01ept66h#9aee 密码:9aee
 
     超过100MB文件下载地址：https://zijieyunpan.cn/PP4UPshxEtO
+    
+ACAC-TV版：https://yoyodadada.lanzouw.com/b01eujydc#9x02 密码:9x02
 
 ## 【B】
 
