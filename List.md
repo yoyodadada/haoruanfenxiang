@@ -698,7 +698,7 @@ YouTube：https://yoyodadada.lanzouw.com/b07psqvc
 
     超过100MB文件下载地址：https://zijieyunpan.cn/frOb7p0re7q
 
-优酷视频：https://yoyodadada.lanzouw.com/b07psreb
+优酷：https://yoyodadada.lanzouw.com/b07psreb
 
 影视大全：https://yoyodadada.lanzouw.com/b07psrjg
 
@@ -720,7 +720,7 @@ YouTube：https://yoyodadada.lanzouw.com/b07psqvc
 
 柚子TV-TV版：https://yoyodadada.lanzouw.com/b01co9lra#f5zp 密码:f5zp
 
-优酷视频-PC版：https://yoyodadada.lanzouw.com/b01cp8raj#8gz6 密码:8gz6
+优酷-PC版：https://yoyodadada.lanzouw.com/b01cp8raj#8gz6 密码:8gz6
 
 影视猫Plus：https://yoyodadada.lanzouw.com/b01czal5a#8wb1 密码:8wb1
 
