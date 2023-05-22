@@ -504,7 +504,7 @@ skylark-PC版：https://yoyodadada.lanzouw.com/b01dq24uh#cb11 密码:cb11
 
 腾讯视频：https://yoyodadada.lanzouw.com/b07psoqf （包含全部版本，超过100MB的以txt形式分享下载链接，源文件下载链接在下端。）
 
-    v8.4.35.26336下载地址：https://zijieyunpan.com/0YuFXfFHoFQ
+    超过100MB文件下载地址：https://zijieyunpan.com/0YuFXfFHoFQ ； https://www.123pan.com/s/JceA-ALai.html
 
 腾讯视频极速版：https://yoyodadada.lanzouw.com/b07psqde
 
