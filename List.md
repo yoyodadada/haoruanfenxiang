@@ -570,7 +570,7 @@ wifi万能钥匙：https://yoyodadada.lanzouw.com/b07pspej （包含全部版本
 
 WPS：https://yoyodadada.lanzouw.com/b07pspuf
 
-    超过100MB版本下载地址：https://zijieyunpan.cn/CwJhwUSu0pN
+    超过100MB版本下载地址：https://zijieyunpan.cn/CwJhwUSu0pN ； https://www.123pan.com/s/JceA-5zai.html
 
 完美视频大全：https://yoyodadada.lanzouw.com/b07psq1c
 
