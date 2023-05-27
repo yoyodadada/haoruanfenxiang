@@ -91,7 +91,7 @@ Bmap（白马地图）：https://yoyodadada.lanzouw.com/b01c13ojg#ht7i 密码:ht
 
 百度网盘-PC版：https://yoyodadada.lanzouw.com/b01c539xe#gx0l 密码:gx0l
 
-    超过100MB文件下载地址：https://zijieyunpan.cn/208r0TXDOUm
+    超过100MB文件下载地址：https://zijieyunpan.cn/208r0TXDOUm ； https://www.123pan.com/s/JceA-I5ai.html
 
 白菜追剧（兔子窝）：https://yoyodadada.lanzouw.com/b01cj7euj#er6s 密码:er6s
 
