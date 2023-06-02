@@ -78,13 +78,15 @@ ACAC-TV版：https://yoyodadada.lanzouw.com/b01eujydc#9x02 密码:9x02
 
 百度地图：https://yoyodadada.lanzouw.com/b07ujf0b
 
+    超过100MB文件下载地址：https://www.123pan.com/s/JceA-k6ai.html
+
 百度贴吧：https://yoyodadada.lanzouw.com/b01bwl3xc
 
 百度输入法：https://yoyodadada.lanzouw.com/b01byu8bg
 
 B612咔叽：https://yoyodadada.lanzouw.com/b01bzf7oj#6h71 密码:6h71 
 
-    超过100MB文件下载地址：：https://zijieyunpan.com/96vYPO4XanJ ； https://www.123pan.com/s/JceA-UUfi 
+    超过100MB文件下载地址：https://zijieyunpan.com/96vYPO4XanJ ； https://www.123pan.com/s/JceA-UUfi 
 
 Bmap（白马地图）：https://yoyodadada.lanzouw.com/b01c13ojg#ht7i 密码:ht7i
 
