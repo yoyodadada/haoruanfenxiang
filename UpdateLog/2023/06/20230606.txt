@@ -1,0 +1,24 @@
+20230606更新内容：
+1.哔哩哔哩更新概念版v7.31.1内置哔哩漫游版、v7.14.1@rikkati修改版。
+2.360浏览器-PC版更新安全浏览器v14.1.1108.0@mefcl精简优化安装版。
+3.adguard更新v4.0.910RC1@balatan、@youarefinished破解高级版。
+4.阿里云盘小白羊-PC版更新v3.10.33-fix、v3.23.60522@odomu版；v3.11.10、v3.11.11@gaozhangmin版。
+5.未归类附加anything-v1.3.22。（安卓版everything）
+6.ChatGPT相关更新Apo-AI-v2.6.1@zhou45破解高级版。
+7.百度网盘-PC版更新v7.29.4.2@zd423去广告绿色版。
+8.哔哩哔哩-TV版更新v1.6.6-repair-v2.0、v3.0测试版、v3.0正式版。
+9.CAD看图王更新v5.3.0@[sn:47723c30]破解高级版。
+10.ChatGPT相关更新Chatbot AI_v1.6.8@liu破解高级版。
+11.ChatGPT相关附加ChatOn_v1.11.134-127@liu破解高级版。
+12.微信-PC版更新v3.9.5.77@zd423多开防撤回绿色版；更新清理工具CleanMyWechat-v2.1。
+13.Google Play商店更新至v35.9.12-29 [0] [PR] 534443787。
+14.IDM-PC版更新v6.41.12破解专业版。
+15.mpv-PC版更新至20230604-git-e18cf0b。
+16.nekogram更新至v9.6.7-3364。
+17.sd maid更新se-v0.8.1-beta0@youarefinished、@ST破解高级版。
+18.xmind更新v23.05.25 (206)@rikkati破解高级版。
+19.x-plore更新v4.31.03@balatan破解捐赠版。
+20.阿里云盘更新v4.6.1@zhou45破解本地会员版。
+21.安卓清理君更新v3.7.1@zhou45、@黑鹰破解会员版。
+22.百度地图更新v18.0.0.1241play版。
+注：蓝奏网盘出现点网络问题，反应非常慢，网页打不开，先更这些，抽空再更。
