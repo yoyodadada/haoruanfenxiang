@@ -630,7 +630,7 @@ win10优化小工具-PC版：https://yoyodadada.lanzouw.com/b01e6ijod#e99a 密�
 
 蜗牛云盘-PC版：https://yoyodadada.lanzouw.com/b01elge9g#hv6s 密码:hv6s
 
-    超过100MB版本下载地址：https://zijieyunpan.cn/H7fPGctEFa6
+    超过100MB版本下载地址：https://zijieyunpan.cn/H7fPGctEFa6 ； https://www.123pan.com/s/JceA-KVai.html
 
 ## 【X】
 
