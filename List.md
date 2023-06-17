@@ -514,7 +514,7 @@ Telegram：https://yoyodadada.lanzouw.com/b07psqij
 
 淘宝：https://yoyodadada.lanzouw.com/b07psrif
 
-    超过100MB文件下载地址：https://zijieyunpan.cn/83uqS2As7C0
+    超过100MB文件下载地址：https://zijieyunpan.cn/83uqS2As7C0 ； https://www.123pan.com/s/JceA-uvBi.html
 
 太极：https://yoyodadada.lanzouw.com/b07pt0of
 
