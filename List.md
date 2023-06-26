@@ -694,7 +694,7 @@ X-Plore：https://yoyodadada.lanzouw.com/b07pt0hi
 
 YouTube：https://yoyodadada.lanzouw.com/b07psqvc
 
-    超过100MB文件下载地址：https://zijieyunpan.cn/frOb7p0re7q
+    超过100MB文件下载地址：https://zijieyunpan.cn/frOb7p0re7q ； https://www.123pan.com/s/JceA-ehBi.html
 
 优酷：https://yoyodadada.lanzouw.com/b07psreb
 
