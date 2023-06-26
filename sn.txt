@@ -27,6 +27,10 @@ Balatan：
 SN：b38fbad3
 CN：rockz5555
 
+Cxapk：
+SN：77b07ba6
+CN：Cxapk
+
 dio：
 SN：6b83f7a9
 C:CN
