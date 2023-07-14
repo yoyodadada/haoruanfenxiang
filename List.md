@@ -634,6 +634,10 @@ win10优化小工具-PC版：https://yoyodadada.lanzouw.com/b01e6ijod#e99a 密�
 
     超过100MB版本下载地址：https://zijieyunpan.cn/H7fPGctEFa6 ； https://www.123pan.com/s/JceA-KVai.html
 
+微信：https://yoyodadada.lanzouw.com/b01f2ekkd#f8yl 密码:f8yl
+
+    超过100MB版本下载地址：https://www.123pan.com/s/JceA-S1Bi.html
+
 ## 【X】
 
 香哈菜谱：https://yoyodadada.lanzouw.com/b07psouj
