@@ -1,0 +1,21 @@
+20230807更新内容：
+1.360浏览器-PC版更新安全浏览器测试版v15.1.1062.64@mefcl精简优化安装。
+2.360手机浏览器更新v10.1.1.300@soldier破解超级会员版；更新v10.1.4.410@soldier去广告精简版。
+3.adguard更新v4.2.21@youarefinished破解高级版。
+4.BBLL-TV版更新至v1.4.1。
+5.hiper calc附加HiPER Scientific Calculator_v10.3.1@liu破解高级版。
+6.MPV-PC版更新至20230806-git-6729285。
+7.mxplayer更新v1.71.2@alien破解专业版。
+8.rar更新v6.23.build117@liu、@balatan破解高级版。
+9.skylark-PC版更新至v4.0.0。
+10.speedtest更新v5.0.8@youarefinished破解高级版。
+11.telegram更新v9.7.6@[MT签名]破解高级版。
+12.TVBox-TV版更新俊于版20230805-1404、20230805-2122；更新taka版20230806-1908。
+13.阿里云盘小白羊-PC版更新gaozhangmin版v3.11.19fix。
+14.阿里云盘TV-TV版更新至v1.1.5。
+15.海阔视界更新至v8.1。
+16.js脚本更新聚合签到-薅羊毛-Unify-Sign-2.0.7。
+17.电商平台活动工具更新微商助手v3.1.1@zhou45破解会员版。
+18.小白羊TV-TV版更新至v1.0.20230806_0009正式版。
+19.小白云盘-PC版更新至v1.0.4。
+20.YouTube附加v18.17.43@Kirlif修改版；更新ReVanced-v18.30.37@inotia00修改版；更新插件mMicroG_v0.2.27.231613@inotia00修改版、v0.2.27.231515。
