@@ -490,7 +490,7 @@ SoftCnKiller-PC版（一款流氓软件清理工具）：https://yoyodadada.lanz
 
 360手机浏览器：https://yoyodadada.lanzouw.com/b01d7cjkd#8zxc 密码:8zxc
 
-    超过100MB文件下载地址：https://zijieyunpan.cn/pXvYvWomuX8
+    超过100MB文件下载地址：https://zijieyunpan.cn/pXvYvWomuX8 ；https://www.123pan.com/s/JceA-4NBi.html
 
 手机性能排行：https://yoyodadada.lanzouw.com/b01d7clch#eetu 密码:eetu
 
