@@ -91,6 +91,10 @@ rikkati：
 SN：e6fcbbb
 C：CN
 
+shadowapks：
+SN：291118ec
+C：IN
+
 Soldier：
 SN：3d408914
 C：CN
