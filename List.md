@@ -342,6 +342,8 @@ Kodi：https://yoyodadada.lanzouw.com/b01e3tgxc#a9v3 密码:a9v3
 
     超过100MB文件下载地址：https://www.123pan.com/s/JceA-pUfi ； https://zijieyunpan.cn/uriyaSq83Ts
 
+蓝奏云盘-PC版（第三方蓝奏云客户端）：https://yoyodadada.lanzouw.com/b01fc8swh#d73u 密码:d73u
+
 ## 【M】
 
 美剧鸟：https://yoyodadada.lanzouw.com/b07pspni
