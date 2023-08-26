@@ -1,0 +1,6 @@
+20230826-v2更新内容：
+1.360浏览器-PC版更新安全浏览器v14.1.1233.0@mefcl精简优化安装版。
+2.adguard更新v4.2.51、v4.2.56@youarefinished、@alien破解高级版。
+3.mxplayer更新v1.72.4@alien破解专业版。
+4.Windows系统调校-PC版更新至2023.8.26_d7dea29e（来自mefcl）。
+5.阿里云盘小白羊-PC版更新gaozhangmin版v3.11.21。
