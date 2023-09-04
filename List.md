@@ -418,6 +418,8 @@ PotPlayer-PC版：https://yoyodadada.lanzouw.com/b07rt7af
 
 Pure Tuber（绿油管，去广告解锁VIP）：https://yoyodadada.lanzouw.com/b01cpncxc#5b47 密码:5b47
 
+PiliPala（哔哩哔哩第三方客户端）：https://yoyodadada.lanzouw.com/b01fg4sgb#6sau 密码:6sau
+
 ## 【Q】
 
 QQ音乐：https://yoyodadada.lanzouw.com/b07psr3a
