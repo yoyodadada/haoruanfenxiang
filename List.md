@@ -142,6 +142,8 @@ COKEMV：https://yoyodadada.lanzouw.com/b01dccxli#8fe2 密码:8fe2
 
 超级ITV-TV版：https://yoyodadada.lanzouw.com/b01dq28vc#1ab4 密码:1ab4
 
+CIBN高清影视-TV版：https://yoyodadada.lanzouw.com/b01fi436d#7rey 密码:7rey
+
 ## 【D】
 
 电视猫-TV版：https://yoyodadada.lanzouw.com/b07pt2dg
@@ -175,6 +177,8 @@ Defender.Tools-PC版：https://yoyodadada.lanzouw.com/b01dq25xg#a986 密码:a986
 Dism++-PC版：https://yoyodadada.lanzouw.com/b01eoaeod#a710 密码:a710
 
 当贝市场极速版-TV版：https://yoyodadada.lanzouw.com/b01etkvbc#6yir 密码:6yir
+
+当贝桌面-TV版：https://yoyodadada.lanzouw.com/b01fi42hi#8qrg 密码:8qrg
 
 ## 【E】
 
@@ -380,6 +384,8 @@ MyRadio：https://yoyodadada.lanzouw.com/b01cwgf7e#eg66 密码:eg66
 
 MPV-PC版：https://yoyodadada.lanzouw.com/b01eu8vmh#3nob 密码:3nob
 
+明日影视-TV版：https://yoyodadada.lanzouw.com/b01fi41di#h0g4 密码:h0g4
+
 ## 【N】
 
 南瓜影视：https://yoyodadada.lanzouw.com/b07vzgfe
@@ -448,6 +454,8 @@ QQ邮箱：https://yoyodadada.lanzouw.com/b01e6ir3a#frth 密码:frth
 
 全剧得：https://yoyodadada.lanzouw.com/b01e8ptpi#1p3d 密码:1p3d
 
+全民K歌-TV版：https://yoyodadada.lanzouw.com/b01fi427i#dsqi 密码:dsqi
+
 ## 【R】
 
 日期计算器-PC版：https://yoyodadada.lanzouw.com/b07pv60j
@@ -508,6 +516,8 @@ skylark-PC版：https://yoyodadada.lanzouw.com/b01dq24uh#cb11 密码:cb11
 
 水星TV-TV版：https://yoyodadada.lanzouw.com/b01dq28bc#blgc 密码:blgc
 
+神鸟电视-TV版：https://yoyodadada.lanzouw.com/b01fi44ib#b1ot 密码:b1ot
+
 ## 【T】
 
 腾讯视频：https://yoyodadada.lanzouw.com/b07psoqf 
@@ -549,6 +559,10 @@ TikTok：https://yoyodadada.lanzouw.com/b01e3tiof#f1a8 密码:f1a8
 特狗影视：https://yoyodadada.lanzouw.com/b01e6iubg#casj 密码:casj
 
 TVBox-TV版：https://yoyodadada.lanzouw.com/b01eejp8h#2mup 密码:2mup
+
+天空TV-TV版：https://yoyodadada.lanzouw.com/b01fi420b#97ah 密码:97ah
+
+特狗TV-TV版：https://yoyodadada.lanzouw.com/b01fi4k7g#7tvr 密码:7tvr
 
 ## 【U】
 
@@ -704,6 +718,8 @@ X-Plore：https://yoyodadada.lanzouw.com/b07pt0hi
 
 小白羊TV-TV版：https://yoyodadada.lanzouw.com/b01f59ysd#9bxn 密码:9bxn
 
+星视界-TV版：https://yoyodadada.lanzouw.com/b01fi4jeh#1qix 密码:1qix
+
 ## 【Y】
 
 影迷大院：https://yoyodadada.lanzouw.com/b07psplg
@@ -763,6 +779,8 @@ YouKnow-TV版：https://yoyodadada.lanzouw.com/b01d1ng2h#5mju 密码:5mju
 知乎：https://yoyodadada.lanzouw.com/b07psrob
 
 资源猫：https://yoyodadada.lanzouw.com/b01bxc2yj
+
+资源猫HD-TV版：https://yoyodadada.lanzouw.com/b01fi4jtc#g69v 密码:g69v
 
 ## 【未归类、合集】
 
