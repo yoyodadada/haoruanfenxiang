@@ -114,6 +114,8 @@ BBLL-TV版（一个第三方哔哩哔哩TV和Pad客户端）：https://yoyodadad
 
 BiliYou（第三方哔哩哔哩）：https://yoyodadada.lanzouw.com/b01eslkpa#1lwq 密码:1lwq
 
+笔趣阁：https://yoyodadada.lanzouw.com/b01fi8imd#4jkl 密码:4jkl
+
 ## 【C】
 
 Calc_Business（卡西欧科学计算器）：https://yoyodadada.lanzouw.com/b07psqyf
@@ -304,6 +306,10 @@ i酷影视-TV版：https://yoyodadada.lanzouw.com/b01e6ilne#897r 密码:897r
 
 剧白白：https://yoyodadada.lanzouw.com/b01e6itwb#i5g1 密码:i5g1
 
+建工计算器：https://yoyodadada.lanzouw.com/b01fi8mte#fhjg 密码:fhjg
+
+99手游加速器：https://yoyodadada.lanzouw.com/b01fi8pud#48g0 密码:48g0
+
 ## 【K】
 
 快点投屏：https://yoyodadada.lanzouw.com/b07psqqh
@@ -327,6 +333,8 @@ i酷影视-TV版：https://yoyodadada.lanzouw.com/b01e6ilne#897r 密码:897r
 Kodi：https://yoyodadada.lanzouw.com/b01e3tgxc#a9v3 密码:a9v3
 
 可视TV.Max-TV版：https://yoyodadada.lanzouw.com/b01e3u2de#6bil 密码:6bil
+
+快手：https://yoyodadada.lanzouw.com/b01fi8n3e#9adg 密码:9adg
 
 ## 【L】
 
@@ -426,6 +434,8 @@ Pure Tuber（绿油管，去广告解锁VIP）：https://yoyodadada.lanzouw.com/
 
 PiliPala（哔哩哔哩第三方客户端）：https://yoyodadada.lanzouw.com/b01fg4sgb#6sau 密码:6sau
 
+拼多多：https://yoyodadada.lanzouw.com/b01fi8hje#1e9g 密码:1e9g
+
 ## 【Q】
 
 QQ音乐：https://yoyodadada.lanzouw.com/b07psr3a
@@ -517,6 +527,8 @@ skylark-PC版：https://yoyodadada.lanzouw.com/b01dq24uh#cb11 密码:cb11
 水星TV-TV版：https://yoyodadada.lanzouw.com/b01dq28bc#blgc 密码:blgc
 
 神鸟电视-TV版：https://yoyodadada.lanzouw.com/b01fi44ib#b1ot 密码:b1ot
+
+Share：https://yoyodadada.lanzouw.com/b01fi8lji#5p8q 密码:5p8q
 
 ## 【T】
 
@@ -657,6 +669,8 @@ win10优化小工具-PC版：https://yoyodadada.lanzouw.com/b01e6ijod#e99a 密�
 微信：https://yoyodadada.lanzouw.com/b01f2ekkd#f8yl 密码:f8yl
 
     超过100MB版本下载地址：https://www.123pan.com/s/JceA-S1Bi.html
+
+网易邮箱：https://yoyodadada.lanzouw.com/b01fi8r2h#ffo3 密码:ffo3
 
 ## 【X】
 
