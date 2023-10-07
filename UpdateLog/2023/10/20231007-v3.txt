@@ -1,0 +1,19 @@
+20231007-v3更新内容：
+1.影视更新至v2.0.6。
+2.影视-TV版更新至v2.0.6。
+3.ChatGPT相关附加Mind Chat-v1.0.1.2@alexa破解高级版。
+4.js脚本更新Autox.js.v6-v6.5.2。
+5.哔哩哔哩-TV版（第三方）更新v1.6.6-repair-v8.0。
+6.BV-TV版更新至v0.2.4.r573.c58204f.release。
+7.剪映更新v11.3.1@辰夕破解会员版；更新国际版v9.4.0@fauzhi破解高级版。
+8.ChatGPT相关更新Chat_Smith_v3.2.2@辰夕破解高级版。
+9.ChatGPT相关更新Chatbot_AI_v3.5.2、v3.5.3@辰夕破解高级版。
+10.微信-PC版更新v3.9.7.29@zd423多开防撤回绿色版；更新清理工具Clean WeChat X_2.0内测版。
+11.硬件检测类更新CPU-Z-v2.08.0。
+12.emby更新至v3.3.36原版。
+13.硬件检测类附加HWiNFO，版本v7.6.2正式版、v7.6.3_5230beta版。
+14.MPV-PC版更新至20231001-git-e969072。
+15.myradio更新v1.1.63.0923@mixroot破解VIP版。
+16.Windows系统调校-PC版更新至2023.10.2_d38ae395。
+17.QQ更新xp模块QAuxv-v1.4.5.r1748.e74a6f9。
+18.youtube更新Vanced_4.4.80.157_v2@kubarev修改版。
