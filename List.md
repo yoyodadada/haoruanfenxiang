@@ -834,6 +834,8 @@ OCR文字识别：https://yoyodadada.lanzouw.com/b01csyvfc#7t2l 密码:7t2l
 
 JS脚本：https://yoyodadada.lanzouw.com/b01d4y3xe#6jnn 密码:6jnn
 
+    部分超过100MB软件下载地址：https://www.123pan.com/s/JceA-58Ji.html
+
 12306抢票类应用：https://yoyodadada.lanzouw.com/b01d6hf4h#b70k 密码:b70k
 
 360工具：https://yoyodadada.lanzouw.com/b01dk67eh#busr 密码:busr
