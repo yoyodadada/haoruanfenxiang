@@ -700,6 +700,8 @@ X-Plore：https://yoyodadada.lanzouw.com/b07pt0hi
 
 喜马拉雅：https://yoyodadada.lanzouw.com/b01ayf0wd
 
+    超过100MB文件下载地址：https://www.123pan.com/s/JceA-udIi.html
+
 迅游手游加速器：https://yoyodadada.lanzouw.com/b01b1444b
 
 星雨视频：https://yoyodadada.lanzouw.com/b01bc2zpc
