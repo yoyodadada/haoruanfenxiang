@@ -86,6 +86,8 @@ ACAC-TV版：https://yoyodadada.lanzouw.com/b01eujydc#9x02 密码:9x02
 
 百度输入法：https://yoyodadada.lanzouw.com/b01byu8bg
 
+    超过100MB文件下载地址：https://www.123pan.com/s/JceA-ohIi.html
+
 B612咔叽：https://yoyodadada.lanzouw.com/b01bzf7oj#6h71 密码:6h71 
 
     超过100MB文件下载地址：https://zijieyunpan.com/96vYPO4XanJ ； https://www.123pan.com/s/JceA-UUfi 
