@@ -518,7 +518,7 @@ SpeedPan-PC版：https://yoyodadada.lanzouw.com/b07qbfze
 
 搜书大师：https://yoyodadada.lanzouw.com/b01b8a87g
 
-SoftCnKiller-PC版（一款流氓软件清理工具）：https://yoyodadada.lanzouw.com/b01d6h59c#6sds 密码:6sds
+SoftCnKiller流氓插件清理工具-PC版：https://yoyodadada.lanzouw.com/b01d6h59c#6sds 密码:6sds
 
 360浏览器-PC版：https://yoyodadada.lanzouw.com/b01d6hfle#bu23 密码:bu23 
 
