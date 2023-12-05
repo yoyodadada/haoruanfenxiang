@@ -364,6 +364,10 @@ Kodi：https://yoyodadada.lanzouw.com/b01e3tgxc#a9v3 密码:a9v3
 
 蓝奏云盘-PC版（第三方蓝奏云客户端）：https://yoyodadada.lanzouw.com/b01fc8swh#d73u 密码:d73u
 
+洛雪音乐LX Music：https://yoyodadada.lanzouw.com/b01fqx5vc#3gut 密码:3gut
+
+洛雪音乐LX Music-PC版：https://yoyodadada.lanzouw.com/b01fqx5wd#gwym 密码:gwym
+
 ## 【M】
 
 美剧鸟：https://yoyodadada.lanzouw.com/b07pspni
