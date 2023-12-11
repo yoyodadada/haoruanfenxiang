@@ -1,0 +1,27 @@
+20231211更新内容：
+1.哔哩哔哩更新v7.58.0内置比例漫游版。
+2.260浏览器-PC版更新安全浏览器v15.1.1355.64@mefcl精简优化安装版、@zd423精简优化绿色版。
+3.adguard更新v4.3.147@帝落破解高级版。
+4.酷安更新第三方c001aok-170~182。
+5.ADM更新v14.0.25@辰夕、@balatan破解高级版。
+6.B612咔叽更新v12.3.20@[SN-7306efd1]破解会员版。
+7.BV-TV版更新至v0.2.5.r590.968b217.release。
+8.chatgpt相关更新Chat_Smith_v3.4.3@辰夕破解高级版。
+9.chatgpt相关更新Chatbot_AI_v4.2.5@辰夕破解高级版。
+10.chatgpt相关附加ChatOn_1.29.276@辰夕破解高级版。（据说是GPT-4，但是我不信）
+11.微信-PC版更新清理工具Clean_WeChat_X_4.0。
+12.Google Play商店更新至v38.7.35-21 [0] [PR] 587857672、v38.7.35-29 [0] [PR] 587857672。
+13.洛雪音乐-PC版更新至v2.6.0-beta.4。
+14.YouTube更新MicroG-v4.1 GMS.234523@WST重制版。
+15.MPV-PC版更新至20231210-git-443c248。
+16.mxplayer更新v1.74.5@simba、@balatan、@辰夕、@KimJaeHyun破解专业版。
+17.myradio更新v1.1.71.1201、v1.1.73.1209@mixroot、@帝落破解VIP版。
+18.nekogram更新至v10.3.2。
+19.Windows系统调校-PC版更新至20231207_f5bb7533。
+20.SSD Maid更新v5.6.3@ST破解专业版。
+21.skylark-PC版更新至v4.0.9。
+22.speedtest更新v5.2.4@balatan破解高级版。
+23.TVBox-TV版更新taka版20231208-1116。
+24.V4A更新v5.6、v5.6.1、v5.6.2@WST魔改版。
+25.tiktok更新v32.5.3@tigr1234566解锁限制版。
+注：暂且更新这些，其余抽空再更。
