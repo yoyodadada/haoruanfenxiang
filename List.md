@@ -861,3 +861,7 @@ JS脚本：https://yoyodadada.lanzouw.com/b01d4y3xe#6jnn 密码:6jnn
 ChatGPT相关：https://yoyodadada.lanzouw.com/b01elg53g#cz9y 密码:cz9y
 
     部分超过100MB软件下载地址：https://www.123pan.com/s/JceA-H3Bi.html
+
+游戏：https://yoyodadada.lanzouw.com/b01ftzljg#3adc 密码:3adc
+
+    部分超过100MB软件下载地址：https://www.123pan.com/s/JceA-JGIi.html
