@@ -726,6 +726,8 @@ X-Plore：https://yoyodadada.lanzouw.com/b07pt0hi
 
 小鸡模拟器：https://yoyodadada.lanzouw.com/b01d0c7uj#7j31 密码:7j31
 
+    超过100MB文件下载地址：https://www.123pan.com/s/JceA-sOIi.html
+
 小鸡模拟器-TV版：https://yoyodadada.lanzouw.com/b01d4y8wd#7kgp 密码:7kgp
 
 小鲸电视-TV版：https://yoyodadada.lanzouw.com/b01d74zpg#514k 密码:514k
