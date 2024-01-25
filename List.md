@@ -320,6 +320,10 @@ i酷影视-TV版：https://yoyodadada.lanzouw.com/b01e6ilne#897r 密码:897r
 
 99手游加速器：https://yoyodadada.lanzouw.com/b01fi8pud#48g0 密码:48g0
 
+今日水印相机：https://yoyodadada.lanzn.com/b01fyq1sb#botq 密码:botq
+
+    超过100MB文件下载地址：https://www.123pan.com/s/JceA-L6Ii.html
+
 ## 【K】
 
 快点投屏：https://yoyodadada.lanzouw.com/b07psqqh
