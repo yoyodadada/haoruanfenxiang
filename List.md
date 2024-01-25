@@ -840,6 +840,8 @@ YouKnow-TV版：https://yoyodadada.lanzouw.com/b01d1ng2h#5mju 密码:5mju
 
 TV、盒子端应用：https://yoyodadada.lanzouw.com/b01bwl23g
 
+    超过100MB软件下载地址：https://www.123pan.com/s/JceA-qyIi.html
+
 激活工具类：https://yoyodadada.lanzouw.com/b01by283a
 
 电商平台活动工具：https://yoyodadada.lanzouw.com/b01c33fdi#a21b 密码:a21b
