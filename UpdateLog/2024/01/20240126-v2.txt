@@ -1,0 +1,18 @@
+20240126-v2更新内容：
+1.阿里云盘小白羊-PC版更新odomu版v3.24.12523。
+2.pilipala更新至v1.0.17.0125含ios版。
+3.洛雪音乐-PC版更新至v2.6.0-beta.9及修复版。
+4.360浏览器-PC版更新安全浏览器v15.1.1433.64@mefcl去广告精简优化安装版。
+5.chatgpt相关附加chatbot-v1.3.5@辰夕破解高级版。（com.chatgpt.ai.bot.open.assistant）
+6.chatgpt相关附加chatbot-v1.3.0@辰夕破解高级版。（com.xphotokit.chatgptassist）
+7.sd maid更新se v0.19.0-beta0@balatan、@youarefinished破解专业版。
+8.speedtest更新v5.3.0@rikkati破解高级版。
+9.telegram更新v10.6.2@[MT签名]破解会员版。
+10.TVBox-TV版更新takagen99版20240125-2332。
+11.未归类附加虎牙直播v11.12.3@rikkati去广告版。
+12.今日水印相机更新v3.0.90.4@辰夕破解会员版。
+13.未归类附加快递100-v8.15.1@rikkati去广告版V1。
+14.电商平台活动工具更新美团红包助手v1.9.1@zhou45去广告版。
+15.未归类更新食谱大全v9.8.4@小二破解会员版。
+16.网易云音乐更新v8.9.20@tkjiku内置网抑叼毛云3.3.0版。
+17.优酷更新v11.0.67@[SN-7fedefb6]去广告版。
