@@ -226,6 +226,8 @@ FreeDTV-TV版：https://yoyodadada.lanzouw.com/b01d558eh#3ml6 密码:3ml6
 
 格式工厂-PC版：https://yoyodadada.lanzouw.com/b01c4aymj#5b45 密码:5b45
 
+    超过100MB文件下载地址：https://www.123pan.com/s/JceA-5vMi.html
+
 Google Play商店：https://yoyodadada.lanzouw.com/b01e2aqla#8n64 密码:8n64
 
 GKD：https://yoyodadada.lanzouw.com/b01fn3nne#d94u 密码:d94u
