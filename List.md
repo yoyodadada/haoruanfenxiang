@@ -164,6 +164,8 @@ CIBN高清影视-TV版：https://yoyodadada.lanzouw.com/b01fi436d#7rey 密码:7r
 
 豆瓣：https://yoyodadada.lanzouw.com/b01bh2tab
 
+    超过100MB文件下载地址：https://www.123pan.com/s/JceA-jvMi.html
+
 大师兄影视：https://yoyodadada.lanzouw.com/b01caip6d#e7mc 密码:e7mc
 
     123云盘下载地址（手机端可直接下载apk）：https://www.123pan.com/s/JceA-1NJi.html
