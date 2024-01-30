@@ -19,6 +19,10 @@ AlexaLiza：
 SN：56c9d6b1
 CN：AlexaLiza
 
+derrin：
+SN：231bc320
+CN：editor
+
 LiteApks（国外网站二改，非原创mod）：
 SN：47723c30
 C:IN
