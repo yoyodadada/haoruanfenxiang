@@ -552,6 +552,8 @@ skylark-PC版：https://yoyodadada.lanzouw.com/b01dq24uh#cb11 密码:cb11
 
 Share：https://yoyodadada.lanzouw.com/b01fi8lji#5p8q 密码:5p8q
 
+Spotify：https://yoyodadada.lanzn.com/b01g0l54d#1nmf 密码:1nmf
+
 ## 【T】
 
 腾讯视频：https://yoyodadada.lanzouw.com/b07psoqf 
