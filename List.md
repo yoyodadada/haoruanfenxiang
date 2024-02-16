@@ -294,6 +294,8 @@ i酷影视-TV版：https://yoyodadada.lanzouw.com/b01e6ilne#897r 密码:897r
 
 今日头条：https://yoyodadada.lanzouw.com/b07pspfa
 
+    超过100MB文件下载地址：https://www.123pan.com/s/JceA-EfMi.html
+
 鲸鱼TV-TV版：https://yoyodadada.lanzouw.com/b07qdyqb
 
 京东：https://yoyodadada.lanzouw.com/b01ayf0ub
