@@ -464,7 +464,7 @@ PiliPala（哔哩哔哩第三方客户端）：https://yoyodadada.lanzouw.com/b0
 
 QQ音乐：https://yoyodadada.lanzouw.com/b07psr3a
 
-    超过100MB文件下载地址：https://zijieyunpan.cn/1dhkRT2V4nk
+    超过100MB文件下载地址：https://www.123pan.com/s/JceA-wBMi.html ； https://zijieyunpan.cn/1dhkRT2V4nk
 
 蜻蜓FM：https://yoyodadada.lanzouw.com/b07pt0ta
 
