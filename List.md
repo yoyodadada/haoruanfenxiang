@@ -330,6 +330,8 @@ i酷影视-TV版：https://yoyodadada.lanzouw.com/b01e6ilne#897r 密码:897r
 
     超过100MB文件下载地址：https://www.123pan.com/s/JceA-L6Ii.html
 
+991EX科学计算器：https://yoyodadada.lanzn.com/b01g10j2f#9cat 密码:9cat
+
 ## 【K】
 
 快点投屏：https://yoyodadada.lanzouw.com/b07psqqh
@@ -555,6 +557,8 @@ skylark-PC版：https://yoyodadada.lanzouw.com/b01dq24uh#cb11 密码:cb11
 Share：https://yoyodadada.lanzouw.com/b01fi8lji#5p8q 密码:5p8q
 
 Spotify：https://yoyodadada.lanzn.com/b01g0l54d#1nmf 密码:1nmf
+
+什么值得买：https://yoyodadada.lanzn.com/b01g10jzi#88oi 密码:88oi
 
 ## 【T】
 
@@ -820,6 +824,10 @@ YouKnow-TV版：https://yoyodadada.lanzouw.com/b01d1ng2h#5mju 密码:5mju
 
 影视-TV版（FongMi）：https://yoyodadada.lanzouw.com/b01emj11e#g3r1 密码:g3r1
 
+123云盘：https://yoyodadada.lanzn.com/b01g10jbe#4d4g 密码:4d4g
+
+    超过100MB软件下载地址：https://www.123pan.com/s/JceA-EJMi.html
+
 ## 【Z】
 
 支付宝：https://yoyodadada.lanzouw.com/b07psrmj
@@ -831,6 +839,10 @@ YouKnow-TV版：https://yoyodadada.lanzouw.com/b01d1ng2h#5mju 密码:5mju
 资源猫：https://yoyodadada.lanzouw.com/b01bxc2yj
 
 资源猫HD-TV版：https://yoyodadada.lanzouw.com/b01fi4jtc#g69v 密码:g69v
+
+作业帮：https://yoyodadada.lanzn.com/b01g10ili#6sr8 密码:6sr8
+
+    超过100MB软件下载地址：https://www.123pan.com/s/JceA-QJMi.html
 
 ## 【未归类、合集】
 
