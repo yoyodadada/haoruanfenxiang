@@ -384,6 +384,8 @@ Kodi：https://yoyodadada.lanzouw.com/b01e3tgxc#a9v3 密码:a9v3
 
 洛雪音乐LX Music-PC版：https://yoyodadada.lanzouw.com/b01fqx5wd#gwym 密码:gwym
 
+梨园行戏曲-TV版：https://yoyodadada.lanzn.com/b01g11swf#462v 密码:462v
+
 ## 【M】
 
 美剧鸟：https://yoyodadada.lanzouw.com/b07pspni
