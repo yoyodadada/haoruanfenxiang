@@ -192,6 +192,8 @@ Dism++-PC版：https://yoyodadada.lanzouw.com/b01eoaeod#a710 密码:a710
 
 当贝桌面-TV版：https://yoyodadada.lanzouw.com/b01fi42hi#8qrg 密码:8qrg
 
+DefenderRemover-PC版：https://yoyodadada.lanzn.com/b01g116sj#gclp 密码:gclp
+
 ## 【E】
 
 儿歌多多：https://yoyodadada.lanzouw.com/b07pspsd
@@ -437,6 +439,10 @@ Nagram：https://yoyodadada.lanzouw.com/b01dkke6f#ekik 密码:ekik
 南府影视：https://yoyodadada.lanzouw.com/b01dlv0na#gyyr 密码:gyyr
 
 Nekogram：https://yoyodadada.lanzouw.com/b01e8lwre#25or 密码:25or
+
+## 【O】
+
+Optimizer-PC版（系统设置工具）：https://yoyodadada.lanzn.com/b01g115te#4s41 密码:4s41
 
 ## 【P】
 
@@ -704,6 +710,8 @@ win10优化小工具-PC版：https://yoyodadada.lanzouw.com/b01e6ijod#e99a 密�
 
 我的电视-TV版：https://yoyodadada.lanzn.com/b01fz6nlc#b9lx 密码:b9lx
 
+WizTree-PC版：https://yoyodadada.lanzn.com/b01g116ja#atpm 密码:atpm
+
 ## 【X】
 
 香哈菜谱：https://yoyodadada.lanzouw.com/b07psouj
@@ -827,6 +835,8 @@ YouKnow-TV版：https://yoyodadada.lanzouw.com/b01d1ng2h#5mju 密码:5mju
 123云盘：https://yoyodadada.lanzn.com/b01g10jbe#4d4g 密码:4d4g
 
     超过100MB软件下载地址：https://www.123pan.com/s/JceA-EJMi.html
+
+123云盘-PC版：https://yoyodadada.lanzn.com/b01g1169a#3vuc 密码:3vuc
 
 ## 【Z】
 
