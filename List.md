@@ -636,6 +636,8 @@ VMOS：https://yoyodadada.lanzouw.com/b01dal5wd#4il0 密码：4il0
 
     超过100MB版本下载地址：https://www.123pan.com/s/JceA-NAai
 
+via：https://yoyodadada.lanzn.com/b01g1lcda#5eih 密码:5eih
+
 ## 【W】
 
 wifi万能钥匙：https://yoyodadada.lanzouw.com/b07pspej 
