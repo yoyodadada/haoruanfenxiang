@@ -520,6 +520,8 @@ Resume Builder（简历生成器）：https://yoyodadada.lanzouw.com/b01e6isng#3
 
 Raptor-PC版（第三方阿里云盘）：https://yoyodadada.lanzn.com/b01g1l53i#cx1g 密码:cx1g
 
+    超过100MB文件下载地址：https://www.123pan.com/s/JceA-pFMi.html
+
 ## 【S】
 
 SpeedTest：https://yoyodadada.lanzouw.com/b07psq6h
