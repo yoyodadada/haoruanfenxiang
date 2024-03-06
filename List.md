@@ -818,6 +818,8 @@ YouTube：https://yoyodadada.lanzouw.com/b07psqvc
 
 有道云笔记：https://yoyodadada.lanzouw.com/b01bwl3cb
 
+    超过100MB软件下载地址：https://www.123pan.com/s/JceA-5CMi.html
+
 柚子TV-TV版：https://yoyodadada.lanzouw.com/b01co9lra#f5zp 密码:f5zp
 
 优酷-PC版：https://yoyodadada.lanzouw.com/b01cp8raj#8gz6 密码:8gz6
