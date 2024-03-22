@@ -550,7 +550,7 @@ SoftCnKiller流氓插件清理工具-PC版：https://yoyodadada.lanzouw.com/b01d
 
 360浏览器-PC版：https://yoyodadada.lanzouw.com/b01d6hfle#bu23 密码:bu23 
 
-    超过100MB文件下载地址：https://zijieyunpan.cn/xUh0f9oS4Pi ； https://www.123pan.com/s/JceA-QoBi.html
+    超过100MB文件下载地址：https://zijieyunpan.cn/xUh0f9oS4Pi ； https://www.123pan.com/s/JceA-QoBi.html ； https://share.feijipan.com/s/2QAVypv8
 
 360手机浏览器：https://yoyodadada.lanzouw.com/b01d7cjkd#8zxc 密码:8zxc
 
