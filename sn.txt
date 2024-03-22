@@ -11,6 +11,10 @@ CN：np
 SN：5ecdfb71
 CN：xiawanli
 
+国外网站liteapks.com二改签名：
+SN：47723c30
+C:IN
+
 Alex：
 SN：ec5eedd3d6da04f7
 CN:Alex
