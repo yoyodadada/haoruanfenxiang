@@ -178,7 +178,7 @@ CIBN高清影视-TV版：https://yoyodadada.lanzouw.com/b01fi436d#7rey 密码:7r
 
 抖音：https://yoyodadada.lanzouw.com/b01doycpa#c8gz 密码:c8gz
 
-    超过100MB文件下载地址：https://zijieyunpan.cn/Wmp0ozhw1zN ； https://www.123pan.com/s/JceA-f6fi
+    超过100MB文件下载地址：https://zijieyunpan.cn/Wmp0ozhw1zN ； https://www.123pan.com/s/JceA-f6fi ； https://share.feijipan.com/s/NvAVzNcW
 
 Defender.Tools-PC版：https://yoyodadada.lanzouw.com/b01dq25xg#a986 密码:a986
 
