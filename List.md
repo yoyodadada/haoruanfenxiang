@@ -62,7 +62,7 @@ ACAC-TV版：https://yoyodadada.lanzouw.com/b01eujydc#9x02 密码:9x02
 
 哔哩哔哩：https://yoyodadada.lanzouw.com/b07pspyj 
 
-    超过100MB文件下载地址：https://www.123pan.com/s/JceA-JSfi ；https://zijieyunpan.cn/RY3hfskNJFJ
+    超过100MB文件下载地址：https://www.123pan.com/s/JceA-JSfi ； https://share.feijipan.com/s/UIAV83qP ； https://zijieyunpan.cn/RY3hfskNJFJ
 
 宝贝听听：https://yoyodadada.lanzouw.com/b07psr7e
 
