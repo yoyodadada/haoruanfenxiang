@@ -42,7 +42,7 @@ AnyTXT.Searcher-PC版：https://yoyodadada.lanzouw.com/b01dlv3ej#6imc 密码:6im
 
 阿里云盘：https://yoyodadada.lanzouw.com/b01dqeaqb#9jtt 密码:9jtt
 
-    超过100MB文件下载地址：https://zijieyunpan.cn/Bpcvqytv4CO ； https://www.123pan.com/s/JceA-k6fi
+    超过100MB文件下载地址：https://zijieyunpan.cn/Bpcvqytv4CO ； https://www.123pan.com/s/JceA-k6fi ； https://share.feijipan.com/s/HBAVvEuy
 
 安兔兔评测：https://yoyodadada.lanzouw.com/b01dqebqh#i8rh 密码:i8rh
 
@@ -92,7 +92,7 @@ ACAC-TV版：https://yoyodadada.lanzouw.com/b01eujydc#9x02 密码:9x02
 
 B612咔叽：https://yoyodadada.lanzouw.com/b01bzf7oj#6h71 密码:6h71 
 
-    超过100MB文件下载地址：https://zijieyunpan.com/96vYPO4XanJ ； https://www.123pan.com/s/JceA-UUfi 
+    超过100MB文件下载地址：https://zijieyunpan.com/96vYPO4XanJ ； https://www.123pan.com/s/JceA-UUfi  ； https://share.feijipan.com/s/S8AV9nMD
 
 Bmap（白马地图）：https://yoyodadada.lanzouw.com/b01c13ojg#ht7i 密码:ht7i
 
@@ -476,7 +476,7 @@ PiliPala（哔哩哔哩第三方客户端）：https://yoyodadada.lanzouw.com/b0
 
 QQ音乐：https://yoyodadada.lanzouw.com/b07psr3a
 
-    超过100MB文件下载地址：https://www.123pan.com/s/JceA-wBMi.html ； https://zijieyunpan.cn/1dhkRT2V4nk
+    超过100MB文件下载地址：https://www.123pan.com/s/JceA-wBMi.html ； https://zijieyunpan.cn/1dhkRT2V4nk ； https://share.feijipan.com/s/B7AV9Hk9
 
 蜻蜓FM：https://yoyodadada.lanzouw.com/b07pt0ta
 
@@ -578,7 +578,7 @@ Spotify：https://yoyodadada.lanzn.com/b01g0l54d#1nmf 密码:1nmf
 
 腾讯视频：https://yoyodadada.lanzouw.com/b07psoqf 
 
-    超过100MB文件下载地址：https://zijieyunpan.com/0YuFXfFHoFQ ； https://www.123pan.com/s/JceA-ALai.html
+    超过100MB文件下载地址：https://zijieyunpan.com/0YuFXfFHoFQ ； https://www.123pan.com/s/JceA-ALai.html ； https://share.feijipan.com/s/ZxAVv6Mr
 
 腾讯视频极速版：https://yoyodadada.lanzouw.com/b07psqde
 
@@ -610,7 +610,7 @@ TV影院-TV版：https://yoyodadada.lanzouw.com/b01c4pi6h#al8e 密码:al8e
 
 TikTok：https://yoyodadada.lanzouw.com/b01e3tiof#f1a8 密码:f1a8
 
-    超过100MB文件下载地址：https://www.123pan.com/s/JceA-Uhai ； https://zijieyunpan.cn/FxV1Z8KoKgX
+    超过100MB文件下载地址：https://www.123pan.com/s/JceA-Uhai ； https://zijieyunpan.cn/FxV1Z8KoKgX ； https://share.feijipan.com/s/TQAVvpk5
     
 特狗影视：https://yoyodadada.lanzouw.com/b01e6iubg#casj 密码:casj
 
@@ -656,7 +656,7 @@ WPS：https://yoyodadada.lanzouw.com/b07pspuf
 
 网易云音乐：https://yoyodadada.lanzouw.com/b07psqkb 
 
-    超过100MB版本下载地址：https://www.123pan.com/s/JceA-0Ufi ； https://zijieyunpan.cn/TTNpmR4HsWO ； https://pan.bilnn.cn/s/Kwmwi9
+    超过100MB版本下载地址：https://www.123pan.com/s/JceA-0Ufi ； https://zijieyunpan.cn/TTNpmR4HsWO ； https://pan.bilnn.cn/s/Kwmwi9 ； https://share.feijipan.com/s/D9AV9fZG
 
 悟饭游戏厅：https://yoyodadada.lanzouw.com/b07psqzg
 
@@ -664,7 +664,7 @@ WPS：https://yoyodadada.lanzouw.com/b07pspuf
 
 微博：https://yoyodadada.lanzouw.com/b07pxk9e
 
-    超过100MB文件下载地址：https://zijieyunpan.cn/XixoWMROTQo ； https://www.123pan.com/s/JceA-Pifi
+    超过100MB文件下载地址：https://zijieyunpan.cn/XixoWMROTQo ； https://www.123pan.com/s/JceA-Pifi ； https://share.feijipan.com/s/qKAVvvYb
 
 微软常用运行库合集-PC版：https://yoyodadada.lanzouw.com/b07pycad
 
@@ -688,7 +688,7 @@ WPS：https://yoyodadada.lanzouw.com/b07pspuf
 
 WPS-PC版：https://yoyodadada.lanzouw.com/b01c3bwhc 密码:8fdh 
 
-    超过100MB文件下载地址：https://zijieyunpan.com/6XP5mgGDTaj ； https://www.123pan.com/s/JceA-3efi
+    超过100MB文件下载地址：https://zijieyunpan.com/6XP5mgGDTaj ； https://www.123pan.com/s/JceA-3efi ； https://share.feijipan.com/s/jHAV91iq
 
 WinRAR-PC版：https://yoyodadada.lanzouw.com/b01cdgqih#252n 密码:252n
 
@@ -776,7 +776,7 @@ X-Plore：https://yoyodadada.lanzouw.com/b07pt0hi
 
 讯飞输入法：https://yoyodadada.lanzouw.com/b01dlv23c#ecn5 密码:ecn5
 
-    超过100MB文件下载地址：https://www.123pan.com/s/JceA-s6Bi.html
+    超过100MB文件下载地址：https://www.123pan.com/s/JceA-s6Bi.html ； https://share.feijipan.com/s/XyAV9kFv
 
 小苹果影视-TV版：https://yoyodadada.lanzouw.com/b01dq2def#7sol 密码:7sol
 
@@ -820,7 +820,7 @@ YouTube：https://yoyodadada.lanzouw.com/b07psqvc
 
 有道云笔记：https://yoyodadada.lanzouw.com/b01bwl3cb
 
-    超过100MB软件下载地址：https://www.123pan.com/s/JceA-5CMi.html
+    超过100MB软件下载地址：https://www.123pan.com/s/JceA-5CMi.html ； https://share.feijipan.com/s/iiAVvh2I
 
 柚子TV-TV版：https://yoyodadada.lanzouw.com/b01co9lra#f5zp 密码:f5zp
 
@@ -872,7 +872,7 @@ YouKnow-TV版：https://yoyodadada.lanzouw.com/b01d1ng2h#5mju 密码:5mju
 
 未归类：https://yoyodadada.lanzouw.com/b01b01h9a
 
-    超过100MB软件下载地址：https://www.123pan.com/s/JceA-vzfi
+    超过100MB软件下载地址：https://www.123pan.com/s/JceA-vzfi ； https://share.feijipan.com/s/XjAV9rf2
 
 口罩相关标准（针对2019年新冠疫情）：https://yoyodadada.lanzouw.com/b01b77bdg
 
@@ -894,11 +894,11 @@ TV、盒子端应用：https://yoyodadada.lanzouw.com/b01bwl23g
 
 PC端应用：https://yoyodadada.lanzouw.com/b01c63npg#er0q 密码:er0q 
 
-    部分超过100MB软件下载地址：https://www.123pan.com/s/JceA-YUfi ；https://zijieyunpan.cn/BbuyDD1MJc0
+    部分超过100MB软件下载地址：https://www.123pan.com/s/JceA-YUfi ；https://zijieyunpan.cn/BbuyDD1MJc0 ； https://share.feijipan.com/s/MyAV9u3B
 
 考试类应用：https://yoyodadada.lanzouw.com/b01cdh9qj#c80i 密码:c80i
 
-    部分超过100MB软件下载地址：https://zijieyunpan.cn/2DMvMXNZhie ；https://www.123pan.com/s/JceA-2yfi
+    部分超过100MB软件下载地址：https://zijieyunpan.cn/2DMvMXNZhie ；https://www.123pan.com/s/JceA-2yfi ； https://share.feijipan.com/s/1iAVvX7w
 
 OCR文字识别：https://yoyodadada.lanzouw.com/b01csyvfc#7t2l 密码:7t2l
 
