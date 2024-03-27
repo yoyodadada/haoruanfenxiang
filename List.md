@@ -332,7 +332,7 @@ i酷影视-TV版：https://yoyodadada.lanzouw.com/b01e6ilne#897r 密码:897r
 
 今日水印相机：https://yoyodadada.lanzn.com/b01fyq1sb#botq 密码:botq
 
-    超过100MB文件下载地址：https://www.123pan.com/s/JceA-L6Ii.html
+    超过100MB文件下载地址：https://www.123pan.com/s/JceA-L6Ii.html ； https://share.feijipan.com/s/myA1bstZ
 
 991EX科学计算器：https://yoyodadada.lanzn.com/b01g10j2f#9cat 密码:9cat
 
