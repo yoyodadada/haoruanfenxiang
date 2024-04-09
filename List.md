@@ -238,6 +238,8 @@ Google Play商店：https://yoyodadada.lanzouw.com/b01e2aqla#8n64 密码:8n64
 
 GKD：https://yoyodadada.lanzouw.com/b01fn3nne#d94u 密码:d94u
 
+GreenTuber（第三方YouTube）：https://yoyodadada.lanzn.com/b0magtwbg#94a9 密码:94a9
+
 ## 【H】
 
 海星模拟器：https://yoyodadada.lanzouw.com/b07psppa
