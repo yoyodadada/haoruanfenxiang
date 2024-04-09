@@ -175,6 +175,10 @@ CN：明沐
 SN：73c1fc6a
 CN：启明星
 
+青帝：
+SN：4dffdc9c
+C：CN
+
 殇情ya：
 SN：529fcf
 CN：殇情ya
