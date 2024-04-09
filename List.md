@@ -12,6 +12,8 @@
 
 注2024.3.22：字节网盘跑路了，现在超过100MB的都存在123云盘，这两天123云盘把我号封了，存在小飞机网盘。
 
+注2024.4.9：123云盘给我永久封号了，不确定已经上传的你们还能不能下载，以后超过100MB的资源我会存在飞机盘里。
+
 ## 【A】
 
 APKPure：https://yoyodadada.lanzouw.com/b07psq9a
@@ -904,7 +906,7 @@ PC端应用：https://yoyodadada.lanzouw.com/b01c63npg#er0q 密码:er0q
 
     部分超过100MB软件下载地址：https://www.123pan.com/s/JceA-YUfi ；https://zijieyunpan.cn/BbuyDD1MJc0 ； https://share.feijipan.com/s/MyAV9u3B
 
-考试类应用：https://yoyodadada.lanzouw.com/b01cdh9qj#c80i 密码:c80i
+考试、学习类应用：https://yoyodadada.lanzouw.com/b01cdh9qj#c80i 密码:c80i
 
     部分超过100MB软件下载地址：https://zijieyunpan.cn/2DMvMXNZhie ；https://www.123pan.com/s/JceA-2yfi ； https://share.feijipan.com/s/1iAVvX7w
 
