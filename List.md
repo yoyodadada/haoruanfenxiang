@@ -528,6 +528,8 @@ Raptor-PC版（第三方阿里云盘）：https://yoyodadada.lanzn.com/b01g1l53i
 
     超过100MB文件下载地址：https://www.123pan.com/s/JceA-pFMi.html
 
+RevInsta（第三方Instagram）：https://yoyodadada.lanzn.com/b0magtx1c#gzp9 密码:gzp9
+
 ## 【S】
 
 SpeedTest：https://yoyodadada.lanzouw.com/b07psq6h
