@@ -766,7 +766,7 @@ X-Plore：https://yoyodadada.lanzouw.com/b07pt0hi
 
 小红书：https://yoyodadada.lanzouw.com/b01cahuri#bk35 密码:bk35 
 
-    超过100MB文件下载地址：https://www.123pan.com/s/JceA-W3Ji.html ； https://zijieyunpan.com/caxiLYYWEkG 
+    超过100MB文件下载地址：https://www.123pan.com/s/JceA-W3Ji.html ； https://zijieyunpan.com/caxiLYYWEkG ； https://share.feijipan.com/s/zeAerFHE
 
 讯飞语记：https://yoyodadada.lanzouw.com/b01co9qad#et0k 密码:et0k
 
