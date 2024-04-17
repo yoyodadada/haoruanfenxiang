@@ -42,7 +42,7 @@ AirPin-TV版：https://yoyodadada.lanzouw.com/b07pt2jc
 
 AnyTXT.Searcher-PC版：https://yoyodadada.lanzouw.com/b01dlv3ej#6imc 密码:6imc
 
-    超过100MB文件下载地址：https://www.123pan.com/s/JceA-8hai
+    超过100MB文件下载地址：https://www.123pan.com/s/JceA-8hai ； https://share.feijipan.com/s/4KA9ydAr
 
 阿里云盘：https://yoyodadada.lanzouw.com/b01dqeaqb#9jtt 密码:9jtt
 
