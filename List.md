@@ -60,6 +60,8 @@ AdGuard：https://yoyodadada.lanzouw.com/b01dqpheh#5lr9 密码:5lr9
     
 ACAC-TV版：https://yoyodadada.lanzouw.com/b01eujydc#9x02 密码:9x02
 
+AfuseKt：https://yoyodadada.lanzn.com/b0mai25pi#7prf 密码:7prf
+
 ## 【B】
 
 百度网盘：https://yoyodadada.lanzouw.com/b07pspid 
