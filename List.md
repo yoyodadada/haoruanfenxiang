@@ -694,7 +694,7 @@ WPS：https://yoyodadada.lanzouw.com/b07pspuf
 
 微信-PC版：https://yoyodadada.lanzouw.com/b01ban6ob 
 
-    超过100MB文件下载地址：https://zijieyunpan.com/UxpCk1F8h72 ； https://www.123pan.com/s/JceA-EUfi ； https://pan.bilnn.cn/s/1OQnSn
+    超过100MB文件下载地址：https://zijieyunpan.com/UxpCk1F8h72 ； https://www.123pan.com/s/JceA-EUfi ； https://pan.bilnn.cn/s/1OQnSn ； https://share.feijipan.com/s/RkAxE2eY
 
 卧龙影视：https://yoyodadada.lanzouw.com/b01bdfw2f
 
@@ -812,7 +812,7 @@ YouTube：https://yoyodadada.lanzouw.com/b07psqvc
 
 优酷：https://yoyodadada.lanzouw.com/b07psreb
 
-    超过100MB文件下载地址：https://www.123pan.com/s/JceA-RVIi.html
+    超过100MB文件下载地址：https://www.123pan.com/s/JceA-RVIi.html ； https://share.feijipan.com/s/fkAxEyYz
 
 影视大全：https://yoyodadada.lanzouw.com/b07psrjg
 
