@@ -38,7 +38,7 @@ AirPin-TV版：https://yoyodadada.lanzouw.com/b07pt2jc
 
 阿里云盘-PC版：https://yoyodadada.lanzouw.com/b01dlv32h#f4po 密码:f4po
 
-    超过100MB文件下载地址：https://www.123pan.com/s/JceA-EhIi.html
+    超过100MB文件下载地址：https://www.123pan.com/s/JceA-EhIi.html ； https://share.feijipan.com/s/APAxNN5P
 
 AnyTXT.Searcher-PC版：https://yoyodadada.lanzouw.com/b01dlv3ej#6imc 密码:6imc
 
