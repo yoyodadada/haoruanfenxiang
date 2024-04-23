@@ -935,3 +935,5 @@ ChatGPT相关：https://yoyodadada.lanzouw.com/b01elg53g#cz9y 密码:cz9y
     部分超过100MB软件下载地址：https://www.123pan.com/s/JceA-JGIi.html
 
 微商工具：https://yoyodadada.lanzn.com/b0magvmda#8g3w 密码:8g3w
+
+    部分超过100MB软件下载地址：https://share.feijipan.com/s/S9Ayr4aD
