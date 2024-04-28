@@ -866,7 +866,7 @@ YouKnow-TV版：https://yoyodadada.lanzouw.com/b01d1ng2h#5mju 密码:5mju
 
 支付宝：https://yoyodadada.lanzouw.com/b07psrmj
 
-    超过100MB软件下载地址：https://www.123pan.com/s/JceA-B6ai.html
+    超过100MB软件下载地址：https://www.123pan.com/s/JceA-B6ai.html ； https://share.feijipan.com/s/BdAge4TT
 
 知乎：https://yoyodadada.lanzouw.com/b07psrob
 
