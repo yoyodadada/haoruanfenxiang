@@ -436,6 +436,8 @@ MPV-PC版：https://yoyodadada.lanzouw.com/b01eu8vmh#3nob 密码:3nob
 
 明日影视-TV版：https://yoyodadada.lanzouw.com/b01fi41di#h0g4 密码:h0g4
 
+MyInsta：https://yoyodadada.lanzn.com/b0malqb4f#eqp4 密码:eqp4
+
 ## 【N】
 
 南瓜影视：https://yoyodadada.lanzouw.com/b07vzgfe
