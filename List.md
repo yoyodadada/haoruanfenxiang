@@ -866,6 +866,8 @@ YouKnow-TV版：https://yoyodadada.lanzouw.com/b01d1ng2h#5mju 密码:5mju
 
 123云盘-PC版：https://yoyodadada.lanzn.com/b01g1169a#3vuc 密码:3vuc
 
+Yamby：https://yoyodadada.lanzn.com/b0manptsd#7jwt 密码:7jwt
+
 ## 【Z】
 
 支付宝：https://yoyodadada.lanzouw.com/b07psrmj
