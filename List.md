@@ -140,6 +140,8 @@ CIBN聚精彩-TV版：https://yoyodadada.lanzouw.com/b07pt2mf
 
 CAD看图王：https://yoyodadada.lanzouw.com/b07ptt2h
 
+    超过100MB文件下载地址：https://share.feijipan.com/s/DlBUROxn
+
 CGI-PC版（系统镜像恢复工具）：https://yoyodadada.lanzouw.com/b07pv6fe
 
 CCleaner-PC版：https://yoyodadada.lanzouw.com/b07pv6ih
