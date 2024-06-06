@@ -88,7 +88,7 @@ AfuseKt：https://yoyodadada.lanzn.com/b0mai25pi#7prf 密码:7prf
 
 百度地图：https://yoyodadada.lanzouw.com/b07ujf0b
 
-    超过100MB文件下载地址：https://www.123pan.com/s/JceA-k6ai.html
+    超过100MB文件下载地址：https://share.feijipan.com/s/8VBC4mLc ； https://www.123pan.com/s/JceA-k6ai.html
 
 百度贴吧：https://yoyodadada.lanzouw.com/b01bwl3xc
 
