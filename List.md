@@ -410,9 +410,11 @@ Kodi：https://yoyodadada.lanzouw.com/b01e3tgxc#a9v3 密码:a9v3
 
 芒果TV：https://yoyodadada.lanzouw.com/b07psq3e
 
+    超过100MB文件下载地址：https://share.feijipan.com/s/Y3BVjl87
+
 MX_Player：https://yoyodadada.lanzouw.com/b07psqab
 
-    超过100MB文件下载地址https://www.123pan.com/s/JceA-uMai ； https://zijieyunpan.cn/aKhRfMvvyFY
+    超过100MB文件下载地址：https://www.123pan.com/s/JceA-uMai ； https://zijieyunpan.cn/aKhRfMvvyFY
 
 MUJI_to_Sleep：https://yoyodadada.lanzouw.com/b07psr6d
 
