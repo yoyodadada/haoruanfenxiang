@@ -130,6 +130,8 @@ BiliYou（第三方哔哩哔哩）：https://yoyodadada.lanzouw.com/b01eslkpa#1l
 
 bilimiao：https://yoyodadada.lanzouw.com/b01fvj2ba#4v48 密码:4v48
 
+贝利自动点击器：https://yoyodadada.lanzn.com/b0maq6stc#hmis 密码:hmis
+
 ## 【C】
 
 Calc_Business（卡西欧科学计算器）：https://yoyodadada.lanzouw.com/b07psqyf
@@ -155,6 +157,8 @@ CIBN酷喵影视-TV版：https://yoyodadada.lanzouw.com/b01b01k6f
 CIBN聚体育-TV版：https://yoyodadada.lanzouw.com/b01co9mcb#bmux 密码:bmux
 
 彩云天气：https://yoyodadada.lanzouw.com/b01d9lneh#e67a 密码:e67a
+
+    超过100MB文件下载地址：https://share.feijipan.com/s/8YBViyjr
 
 COKEMV：https://yoyodadada.lanzouw.com/b01dccxli#8fe2 密码:8fe2
 
@@ -704,7 +708,7 @@ WPS：https://yoyodadada.lanzouw.com/b07pspuf
 
 卧龙影视：https://yoyodadada.lanzouw.com/b01bdfw2f
 
-WPS-PC版：https://yoyodadada.lanzouw.com/b01c3bwhc 密码:8fdh 
+WPS-PC版：https://yoyodadada.lanzouw.com/b01c3bwhc#8fdh  密码:8fdh 
 
     超过100MB文件下载地址：https://zijieyunpan.com/6XP5mgGDTaj ； https://www.123pan.com/s/JceA-3efi ； https://share.feijipan.com/s/jHAV91iq
 
