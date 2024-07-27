@@ -870,7 +870,7 @@ YouKnow-TV版：https://yoyodadada.lanzouw.com/b01d1ng2h#5mju 密码:5mju
 
 123云盘：https://yoyodadada.lanzn.com/b01g10jbe#4d4g 密码:4d4g
 
-    超过100MB软件下载地址：https://www.123pan.com/s/JceA-EJMi.html
+    超过100MB软件下载地址：https://share.feijipan.com/s/GKBjOiIO ； https://www.123pan.com/s/JceA-EJMi.html
 
 123云盘-PC版：https://yoyodadada.lanzn.com/b01g1169a#3vuc 密码:3vuc
 
