@@ -386,7 +386,7 @@ Kodi：https://yoyodadada.lanzouw.com/b01e3tgxc#a9v3 密码:a9v3
 
 乐播投屏：https://yoyodadada.lanzouw.com/b01c6026d#hqxi 密码:hqxi
 
-    超过100MB文件下载地址：https://www.123pan.com/s/JceA-n5ai.html
+    超过100MB文件下载地址：https://share.feijipan.com/s/4PCOUmDG ； https://www.123pan.com/s/JceA-n5ai.html
 
 蓝云：https://yoyodadada.lanzouw.com/b01crl5gd#emqv 密码:emqv
 
