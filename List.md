@@ -20,7 +20,7 @@ APKPure：https://yoyodadada.lanzouw.com/b07psq9a
 
 爱奇艺：https://yoyodadada.lanzouw.com/b07psrbi
 
-    超过100MB文件下载地址：https://www.123pan.com/s/JceA-KQwi.html
+    超过100MB文件下载地址：https://share.feijipan.com/s/rvCOTkIQ ； https://www.123pan.com/s/JceA-KQwi.html
 
 ADM：https://yoyodadada.lanzouw.com/b07pt0kb
 
