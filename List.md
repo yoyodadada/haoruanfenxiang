@@ -510,7 +510,7 @@ QQ轻聊版-PC版：https://yoyodadada.lanzouw.com/b07pv65e
 
 QQ：https://yoyodadada.lanzouw.com/b01b6ay1e 
 
-    超过100MB文件下载地址：https://zijieyunpan.com/4o1nE3ssDpJ ； https://www.123pan.com/s/JceA-Lifi ； https://ihcloud.net/s/QdlntY
+    超过100MB文件下载地址：https://share.feijipan.com/s/E2CPVwiS ； https://zijieyunpan.com/4o1nE3ssDpJ ； https://www.123pan.com/s/JceA-Lifi ； https://ihcloud.net/s/QdlntY
 
 QQ-PC版：https://yoyodadada.lanzouw.com/b01b7fkvg
 
