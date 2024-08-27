@@ -222,6 +222,8 @@ Emby-TV版：https://yoyodadada.lanzouw.com/b01e6i34h#gd3p 密码:gd3p
 
 Emby：https://yoyodadada.lanzouw.com/b01e6i35i#ea06 密码:ea06
 
+    超过100MB文件下载地址：https://share.feijipan.com/s/CXCYdDkF
+
 ## 【F】
 
 Fancast：https://yoyodadada.lanzouw.com/b07pspxi
