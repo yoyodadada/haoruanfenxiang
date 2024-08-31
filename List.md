@@ -94,7 +94,7 @@ AfuseKt：https://yoyodadada.lanzn.com/b0mai25pi#7prf 密码:7prf
 
 百度输入法：https://yoyodadada.lanzouw.com/b01byu8bg
 
-    超过100MB文件下载地址：https://www.123pan.com/s/JceA-ohIi.html
+    超过100MB文件下载地址：https://share.feijipan.com/s/yuCQTTlX ； https://www.123pan.com/s/JceA-ohIi.html
 
 B612咔叽：https://yoyodadada.lanzouw.com/b01bzf7oj#6h71 密码:6h71 
 
