@@ -946,6 +946,8 @@ JS脚本：https://yoyodadada.lanzouw.com/b01d4y3xe#6jnn 密码:6jnn
 
 360工具：https://yoyodadada.lanzouw.com/b01dk67eh#busr 密码:busr
 
+    部分超过100MB软件下载地址：https://share.feijipan.com/s/mZCQZQSX
+
 百度文库工具：https://yoyodadada.lanzouw.com/b01dlv3rc#1a5z 密码:1a5z
 
 火绒工具：https://yoyodadada.lanzouw.com/b01dq24yb#aw9q 密码:aw9q
