@@ -652,6 +652,8 @@ TVBox-TV版：https://yoyodadada.lanzouw.com/b01eejp8h#2mup 密码:2mup
 
 特狗TV-TV版：https://yoyodadada.lanzouw.com/b01fi4k7g#7tvr 密码:7tvr
 
+Televizo：https://yoyodadada.lanzn.com/b0mawqzab#dlu3 密码:dlu3
+
 ## 【U】
 
 UnblockMusic：https://yoyodadada.lanzouw.com/b01aya7ad
