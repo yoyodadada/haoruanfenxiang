@@ -470,6 +470,8 @@ Nagram：https://yoyodadada.lanzouw.com/b01dkke6f#ekik 密码:ekik
 
 Nekogram：https://yoyodadada.lanzouw.com/b01e8lwre#25or 密码:25or
 
+Nano Teleprompter：https://yoyodadada.lanzn.com/b0mawqzlc#e77j 密码:e77j
+
 ## 【O】
 
 Optimizer-PC版（系统设置工具）：https://yoyodadada.lanzn.com/b01g115te#4s41 密码:4s41
@@ -824,6 +826,8 @@ X-Plore：https://yoyodadada.lanzouw.com/b07pt0hi
 
 小白电视-TV版：https://yoyodadada.lanzouw.com/b01fnqplc#1tim 密码:1tim
 
+小学生出题软件-PC版：https://yoyodadada.lanzn.com/b0mawqzqh#8ndq 密码:8ndq
+
 ## 【Y】
 
 影迷大院：https://yoyodadada.lanzouw.com/b07psplg
@@ -888,6 +892,8 @@ YouKnow-TV版：https://yoyodadada.lanzouw.com/b01d1ng2h#5mju 密码:5mju
 
 Yamby：https://yoyodadada.lanzn.com/b0manptsd#7jwt 密码:7jwt
 
+隐形提词器-PC版：https://yoyodadada.lanzn.com/b0mawqzsj#50bw 密码:50bw
+
 ## 【Z】
 
 支付宝：https://yoyodadada.lanzouw.com/b07psrmj
@@ -903,6 +909,8 @@ Yamby：https://yoyodadada.lanzn.com/b0manptsd#7jwt 密码:7jwt
 作业帮：https://yoyodadada.lanzn.com/b01g10ili#6sr8 密码:6sr8
 
     超过100MB软件下载地址：https://www.123pan.com/s/JceA-QJMi.html
+
+中小学电子教材-PC版：https://yoyodadada.lanzn.com/b0mawqzij#7hye 密码:7hye
 
 ## 【未归类、合集】
 
