@@ -940,6 +940,8 @@ PC端应用：https://yoyodadada.lanzouw.com/b01c63npg#er0q 密码:er0q
 
 OCR文字识别：https://yoyodadada.lanzouw.com/b01csyvfc#7t2l 密码:7t2l
 
+    部分超过100MB软件下载地址：https://share.feijipan.com/s/ZBC3M92t
+
 JS脚本：https://yoyodadada.lanzouw.com/b01d4y3xe#6jnn 密码:6jnn
 
     部分超过100MB软件下载地址：https://share.feijipan.com/s/atCFJPUq ； https://www.123pan.com/s/JceA-58Ji.html
