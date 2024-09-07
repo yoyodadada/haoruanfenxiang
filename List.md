@@ -228,6 +228,8 @@ Emby：https://yoyodadada.lanzouw.com/b01e6i35i#ea06 密码:ea06
 
     超过100MB文件下载地址：https://share.feijipan.com/s/CXCYdDkF
 
+饿了么红包助手：https://yoyodadada.lanzn.com/b0mawws5a#2vy4 密码:2vy4
+
 ## 【F】
 
 Fancast：https://yoyodadada.lanzouw.com/b07pspxi
@@ -899,6 +901,8 @@ YouKnow-TV版：https://yoyodadada.lanzouw.com/b01d1ng2h#5mju 密码:5mju
 Yamby：https://yoyodadada.lanzn.com/b0manptsd#7jwt 密码:7jwt
 
 隐形提词器-PC版：https://yoyodadada.lanzn.com/b0mawqzsj#50bw 密码:50bw
+
+遥控精灵：https://yoyodadada.lanzn.com/b0mawwsaf#8czg 密码:8czg
 
 ## 【Z】
 
