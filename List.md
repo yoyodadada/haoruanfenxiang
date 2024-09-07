@@ -208,6 +208,10 @@ Dism++-PC版：https://yoyodadada.lanzouw.com/b01eoaeod#a710 密码:a710
 
 DefenderRemover-PC版：https://yoyodadada.lanzn.com/b01g116sj#gclp 密码:gclp
 
+DDU-PC版（显卡驱动程序卸载工具）：https://yoyodadada.lanzn.com/b0mawwr0j#5wnl 密码:5wnl
+
+滴滴出行：https://yoyodadada.lanzn.com/b0mawwr5e#ccd3 密码:ccd3
+
 ## 【E】
 
 儿歌多多：https://yoyodadada.lanzouw.com/b07pspsd
@@ -451,6 +455,8 @@ MPV-PC版：https://yoyodadada.lanzouw.com/b01eu8vmh#3nob 密码:3nob
 明日影视-TV版：https://yoyodadada.lanzouw.com/b01fi41di#h0g4 密码:h0g4
 
 MyInsta：https://yoyodadada.lanzn.com/b0malqb4f#eqp4 密码:eqp4
+
+美团：https://yoyodadada.lanzn.com/b0mawwr6f#1tb9 密码:1tb9
 
 ## 【N】
 
