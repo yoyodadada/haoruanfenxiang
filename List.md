@@ -836,6 +836,10 @@ X-Plore：https://yoyodadada.lanzouw.com/b07pt0hi
 
 小学生出题软件-PC版：https://yoyodadada.lanzn.com/b0mawqzqh#8ndq 密码:8ndq
 
+小伴龙：https://yoyodadada.lanzn.com/b0mawymfg#hl0y 密码:hl0y
+
+    超过100MB文件下载地址：https://share.feijipan.com/s/60CbMiMy
+
 ## 【Y】
 
 影迷大院：https://yoyodadada.lanzouw.com/b07psplg
