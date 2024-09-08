@@ -212,6 +212,8 @@ DDU-PC版（显卡驱动程序卸载工具）：https://yoyodadada.lanzn.com/b0m
 
 滴滴出行：https://yoyodadada.lanzn.com/b0mawwr5e#ccd3 密码:ccd3
 
+多邻国：https://yoyodadada.lanzn.com/b0mawyocf#5h1e 密码:5h1e
+
 ## 【E】
 
 儿歌多多：https://yoyodadada.lanzouw.com/b07pspsd
