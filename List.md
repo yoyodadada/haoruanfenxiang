@@ -926,8 +926,6 @@ Yamby：https://yoyodadada.lanzn.com/b0manptsd#7jwt 密码:7jwt
 
     超过100MB软件下载地址：https://www.123pan.com/s/JceA-QJMi.html
 
-中小学电子教材-PC版：https://yoyodadada.lanzn.com/b0mawqzij#7hye 密码:7hye
-
 ## 【未归类、合集】
 
 （一些未按应用名称首字母归类的比较好用的软件）
