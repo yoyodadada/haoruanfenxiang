@@ -462,6 +462,8 @@ MyInsta：https://yoyodadada.lanzn.com/b0malqb4f#eqp4 密码:eqp4
 
 美团：https://yoyodadada.lanzn.com/b0mawwr6f#1tb9 密码:1tb9
 
+魔法茅台助手：https://yoyodadada.lanzn.com/b0max5c9c#2nqb 密码:2nqb
+
 ## 【N】
 
 南瓜影视：https://yoyodadada.lanzouw.com/b07vzgfe
