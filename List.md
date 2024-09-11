@@ -997,3 +997,5 @@ AI类应用（原ChatGPT相关）：https://yoyodadada.lanzouw.com/b01elg53g#cz9
 联想电脑工具合集：https://yoyodadada.lanzn.com/b0mawudtc#95yg 密码:95yg
 
     部分超过100MB软件下载地址：https://share.feijipan.com/s/y1C4mf5S
+
+中小学电子教材下载工具合集：https://yoyodadada.lanzn.com/b0max56ah#4ka6 密码:4ka6
