@@ -956,11 +956,11 @@ TV、盒子端应用：https://yoyodadada.lanzouw.com/b01bwl23g
 
 PC端应用：https://yoyodadada.lanzouw.com/b01c63npg#er0q 密码:er0q 
 
-    部分超过100MB软件下载地址：https://www.123pan.com/s/JceA-YUfi ；https://zijieyunpan.cn/BbuyDD1MJc0 ； https://share.feijipan.com/s/MyAV9u3B
+    部分超过100MB软件下载地址：https://share.feijipan.com/s/MyAV9u3B ； https://www.123pan.com/s/JceA-YUfi ；https://zijieyunpan.cn/BbuyDD1MJc0
 
-考试、学习类应用：https://yoyodadada.lanzouw.com/b01cdh9qj#c80i 密码:c80i
+合集-驾考：https://yoyodadada.lanzouw.com/b01cdh9qj#c80i 密码:c80i
 
-    部分超过100MB软件下载地址：https://zijieyunpan.cn/2DMvMXNZhie ；https://www.123pan.com/s/JceA-2yfi ； https://share.feijipan.com/s/1iAVvX7w
+    部分超过100MB软件下载地址：https://share.feijipan.com/s/1iAVvX7w ； https://zijieyunpan.cn/2DMvMXNZhie ；https://www.123pan.com/s/JceA-2yfi
 
 OCR文字识别：https://yoyodadada.lanzouw.com/b01csyvfc#7t2l 密码:7t2l
 
@@ -984,9 +984,9 @@ JS脚本：https://yoyodadada.lanzouw.com/b01d4y3xe#6jnn 密码:6jnn
 
     部分超过100MB软件下载地址：https://www.123pan.com/s/JceA-H3Bi.html ； https://share.feijipan.com/s/yKAgbpIb
 
-游戏：https://yoyodadada.lanzouw.com/b01ftzljg#3adc 密码:3adc
+合集-游戏：https://yoyodadada.lanzouw.com/b01ftzljg#3adc 密码:3adc
 
-    部分超过100MB软件下载地址：https://www.123pan.com/s/JceA-JGIi.html
+    部分超过100MB软件下载地址：https://share.feijipan.com/s/LeC6NbKX ； https://www.123pan.com/s/JceA-JGIi.html
 
 微商工具：https://yoyodadada.lanzn.com/b0magvmda#8g3w 密码:8g3w
 
