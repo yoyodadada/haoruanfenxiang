@@ -944,7 +944,7 @@ Yamby：https://yoyodadada.lanzn.com/b0manptsd#7jwt 密码:7jwt
 
     超过100MB软件下载地址：https://share.feijipan.com/s/D1C2jFXX
 
-驱动管理类：https://yoyodadada.lanzouw.com/b01bwkyqf
+合集-驱动管理：https://yoyodadada.lanzouw.com/b01bwkyqf
 
     超过100MB软件下载地址：https://share.feijipan.com/s/HGB7T1nl ； https://www.123pan.com/s/JceA-3zfi ； https://zijieyunpan.cn/oPSq7zN1hBg
 
