@@ -208,8 +208,6 @@ Dism++-PC版：https://yoyodadada.lanzouw.com/b01eoaeod#a710 密码:a710
 
 DefenderRemover-PC版：https://yoyodadada.lanzn.com/b01g116sj#gclp 密码:gclp
 
-DDU-PC版（显卡驱动程序卸载工具）：https://yoyodadada.lanzn.com/b0mawwr0j#5wnl 密码:5wnl
-
 滴滴出行：https://yoyodadada.lanzn.com/b0mawwr5e#ccd3 密码:ccd3
 
 多邻国：https://yoyodadada.lanzn.com/b0mawyocf#5h1e 密码:5h1e
