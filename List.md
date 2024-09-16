@@ -676,6 +676,8 @@ UU游戏加速器：https://yoyodadada.lanzouw.com/b01d4yacf#7ye0 密码:7ye0
 
 VSCO：https://yoyodadada.lanzouw.com/b07psq7i
 
+    超过100MB版本下载地址：https://share.feijipan.com/s/tfC7UH5W
+
 ViPER4Android_FX：https://yoyodadada.lanzouw.com/b07qdymh
 
 Village：https://yoyodadada.lanzouw.com/b07skzmh
