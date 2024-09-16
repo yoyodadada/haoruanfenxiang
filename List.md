@@ -132,6 +132,8 @@ bilimiao：https://yoyodadada.lanzouw.com/b01fvj2ba#4v48 密码:4v48
 
 贝利自动点击器：https://yoyodadada.lanzn.com/b0maq6stc#hmis 密码:hmis
 
+布蕾4K：https://yoyodadada.lanzn.com/b0maxlj0b#7jxx 密码:7jxx
+
 ## 【C】
 
 Calc_Business（卡西欧科学计算器）：https://yoyodadada.lanzouw.com/b07psqyf
