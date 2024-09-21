@@ -668,6 +668,8 @@ TVBox-TV版：https://yoyodadada.lanzouw.com/b01eejp8h#2mup 密码:2mup
 
 Televizo：https://yoyodadada.lanzn.com/b0mawqzab#dlu3 密码:dlu3
 
+腾讯软件管家-PC版：https://yoyodadada.lanzn.com/b0maxzqxa#f94k 密码:f94k
+
 ## 【U】
 
 UnblockMusic：https://yoyodadada.lanzouw.com/b01aya7ad
