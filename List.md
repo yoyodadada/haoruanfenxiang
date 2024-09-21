@@ -1002,4 +1002,4 @@ JS脚本：https://yoyodadada.lanzouw.com/b01d4y3xe#6jnn 密码:6jnn
 
     部分超过100MB软件下载地址：https://share.feijipan.com/s/y1C4mf5S
 
-中小学电子教材下载工具合集：https://yoyodadada.lanzn.com/b0max56ah#4ka6 密码:4ka6
+合集-教学辅导：https://yoyodadada.lanzn.com/b0may06ra#bw9y 密码:bw9y
