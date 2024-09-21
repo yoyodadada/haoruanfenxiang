@@ -486,8 +486,6 @@ Nagram：https://yoyodadada.lanzouw.com/b01dkke6f#ekik 密码:ekik
 
 Nekogram：https://yoyodadada.lanzouw.com/b01e8lwre#25or 密码:25or
 
-Nano Teleprompter：https://yoyodadada.lanzn.com/b0mawqzlc#e77j 密码:e77j
-
 ## 【O】
 
 Optimizer-PC版（系统设置工具）：https://yoyodadada.lanzn.com/b01g115te#4s41 密码:4s41
@@ -846,8 +844,6 @@ X-Plore：https://yoyodadada.lanzouw.com/b07pt0hi
 
 小白电视-TV版：https://yoyodadada.lanzouw.com/b01fnqplc#1tim 密码:1tim
 
-小学生出题软件-PC版：https://yoyodadada.lanzn.com/b0mawqzqh#8ndq 密码:8ndq
-
 小伴龙：https://yoyodadada.lanzn.com/b0mawymfg#hl0y 密码:hl0y
 
     超过100MB文件下载地址：https://share.feijipan.com/s/60CbMiMy
@@ -915,8 +911,6 @@ YouKnow-TV版：https://yoyodadada.lanzouw.com/b01d1ng2h#5mju 密码:5mju
     超过100MB软件下载地址：https://share.feijipan.com/s/ZhBzn9XX
 
 Yamby：https://yoyodadada.lanzn.com/b0manptsd#7jwt 密码:7jwt
-
-隐形提词器-PC版：https://yoyodadada.lanzn.com/b0mawqzsj#50bw 密码:50bw
 
 遥控精灵：https://yoyodadada.lanzn.com/b0mawwsaf#8czg 密码:8czg
 
@@ -1009,3 +1003,5 @@ JS脚本：https://yoyodadada.lanzouw.com/b01d4y3xe#6jnn 密码:6jnn
 合集-教学辅导：https://yoyodadada.lanzn.com/b0may06ra#bw9y 密码:bw9y
 
 合集-职考：https://yoyodadada.lanzn.com/b0may07nc#15sx 密码:15sx
+
+合集-提词器：https://yoyodadada.lanzn.com/b0may0b0d#ex3x 密码:ex3x
