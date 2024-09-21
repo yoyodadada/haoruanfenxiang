@@ -944,7 +944,7 @@ Yamby：https://yoyodadada.lanzn.com/b0manptsd#7jwt 密码:7jwt
 
 电商平台抢购软件：https://yoyodadada.lanzouw.com/b01b77boh
 
-硬件检测类：https://yoyodadada.lanzouw.com/b01bwkyod
+合集-硬件检测：https://yoyodadada.lanzouw.com/b01bwkyod
 
     超过100MB软件下载地址：https://share.feijipan.com/s/D1C2jFXX
 
