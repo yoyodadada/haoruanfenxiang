@@ -474,6 +474,8 @@ MyInsta：https://yoyodadada.lanzn.com/b0malqb4f#eqp4 密码:eqp4
 
     超过100MB文件下载地址：https://share.feijipan.com/s/XLCwtFID
 
+美团红包助手：https://yoyodadada.lanzn.com/b0may1hqb#acxz 密码:acxz
+
 ## 【N】
 
 南瓜影视：https://yoyodadada.lanzouw.com/b07vzgfe
@@ -1015,3 +1017,5 @@ JS脚本：https://yoyodadada.lanzouw.com/b01d4y3xe#6jnn 密码:6jnn
 合集-职考：https://yoyodadada.lanzn.com/b0may07nc#15sx 密码:15sx
 
 合集-提词器：https://yoyodadada.lanzn.com/b0may0b0d#ex3x 密码:ex3x
+
+合集-系统增强：https://yoyodadada.lanzn.com/b0may1h9e#1zf2 密码:1zf2
