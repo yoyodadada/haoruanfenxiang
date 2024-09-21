@@ -462,7 +462,11 @@ MyInsta：https://yoyodadada.lanzn.com/b0malqb4f#eqp4 密码:eqp4
 
 美团：https://yoyodadada.lanzn.com/b0mawwr6f#1tb9 密码:1tb9
 
-魔法茅台助手：https://yoyodadada.lanzn.com/b0max5c9c#2nqb 密码:2nqb
+魔法茅台助手：https://yoyodadada.lanzn.com/b0max5c9c#2nqb 密码:2nqb+
+
+米家：https://yoyodadada.lanzn.com/b0may08je#64hq 密码:64hq
+
+    超过100MB文件下载地址：https://share.feijipan.com/s/XLCwtFID
 
 ## 【N】
 
