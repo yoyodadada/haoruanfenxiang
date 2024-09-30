@@ -762,7 +762,7 @@ WinRAR-PC版：https://yoyodadada.lanzouw.com/b01cdgqih#252n 密码:252n
     
 网易云音乐-PC版：https://yoyodadada.lanzouw.com/b01d9q8pi#cisa 密码:cisa
 
-    超过100MB版本下载地址：https://www.123pan.com/s/JceA-1oBi.html
+    超过100MB版本下载地址：https://share.feijipan.com/s/URCjDICc ； https://www.123pan.com/s/JceA-1oBi.html
 
 Windows系统调校-PC版：https://yoyodadada.lanzouw.com/b01dq265e#6abe 密码:6abe
 
