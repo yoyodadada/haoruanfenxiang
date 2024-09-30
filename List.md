@@ -1004,7 +1004,7 @@ JS脚本：https://yoyodadada.lanzouw.com/b01d4y3xe#6jnn 密码:6jnn
 
     部分超过100MB软件下载地址：https://share.feijipan.com/s/LeC6NbKX ； https://www.123pan.com/s/JceA-JGIi.html
 
-微商工具：https://yoyodadada.lanzn.com/b0magvmda#8g3w 密码:8g3w
+合集-微商工具：https://yoyodadada.lanzn.com/b0magvmda#8g3w 密码:8g3w
 
     部分超过100MB软件下载地址：https://share.feijipan.com/s/S9Ayr4aD
 
