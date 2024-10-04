@@ -862,6 +862,8 @@ X-Plore：https://yoyodadada.lanzouw.com/b07pt0hi
 
     超过100MB文件下载地址：https://share.feijipan.com/s/YXCwRQXC
 
+小飞机网盘：https://yoyodadada.lanzn.com/b0maz1dif#9dt5 密码:9dt5
+
 ## 【Y】
 
 影迷大院：https://yoyodadada.lanzouw.com/b07psplg
