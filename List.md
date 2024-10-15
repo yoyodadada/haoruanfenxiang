@@ -220,6 +220,8 @@ DefenderRemover-PC版：https://yoyodadada.lanzn.com/b01g116sj#gclp 密码:gclp
 
 多邻国：https://yoyodadada.lanzn.com/b0mawyocf#5h1e 密码:5h1e
 
+电视浏览器-TV版：https://yoyodadada.lanzn.com/b0mazwygf#1wz4 密码:1wz4
+
 ## 【E】
 
 儿歌多多：https://yoyodadada.lanzouw.com/b07pspsd
