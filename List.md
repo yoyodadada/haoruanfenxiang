@@ -1016,7 +1016,7 @@ JS脚本：https://yoyodadada.lanzouw.com/b01d4y3xe#6jnn 密码:6jnn
 
     部分超过100MB软件下载地址：https://share.feijipan.com/s/S9Ayr4aD
 
-联想电脑工具合集：https://yoyodadada.lanzn.com/b0mawudtc#95yg 密码:95yg
+合集-联想电脑工具：https://yoyodadada.lanzn.com/b0mawudtc#95yg 密码:95yg
 
     部分超过100MB软件下载地址：https://share.feijipan.com/s/y1C4mf5S
 
