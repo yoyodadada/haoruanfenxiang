@@ -1030,4 +1030,6 @@ JS脚本：https://yoyodadada.lanzouw.com/b01d4y3xe#6jnn 密码:6jnn
 
 合集-提词器：https://yoyodadada.lanzn.com/b0may0b0d#ex3x 密码:ex3x
 
+    部分超过100MB软件下载地址：https://share.feijipan.com/s/ZNDASy0v
+
 合集-系统增强：https://yoyodadada.lanzn.com/b0may1h9e#1zf2 密码:1zf2
