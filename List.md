@@ -526,6 +526,8 @@ PiliPala（哔哩哔哩第三方客户端）：https://yoyodadada.lanzouw.com/b0
 
 拼多多：https://yoyodadada.lanzouw.com/b01fi8hje#1e9g 密码:1e9g
 
+Photoshop-PC版：https://yoyodadada.lanzn.com/b0mb0eo5c#2gtf 密码:2gtf
+
 ## 【Q】
 
 QQ音乐：https://yoyodadada.lanzouw.com/b07psr3a
