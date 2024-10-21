@@ -136,6 +136,8 @@ bilimiao：https://yoyodadada.lanzouw.com/b01fvj2ba#4v48 密码:4v48
 
 百视通TV-TV版：https://yoyodadada.lanzn.com/b0maz1c9a#7ny5 密码:7ny5
 
+宝宝巴士儿歌-TV版：https://yoyodadada.lanzn.com/b0mb0eovi#56ji 密码:56ji
+
 ## 【C】
 
 Calc_Business（卡西欧科学计算器）：https://yoyodadada.lanzouw.com/b07psqyf
