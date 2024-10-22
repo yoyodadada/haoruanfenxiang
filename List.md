@@ -260,6 +260,8 @@ FreeDTV-TV版：https://yoyodadada.lanzouw.com/b01d558eh#3ml6 密码:3ml6
 
 番茄免费小说：https://yoyodadada.lanzn.com/b0mb0eq6f#f2av 密码:f2av
 
+Flipy翻页时钟：https://yoyodadada.lanzn.com/b0mb0hmud#cjo5 密码:cjo5
+
 ## 【G】
 
 高德地图：https://yoyodadada.lanzouw.com/b07psqne 
