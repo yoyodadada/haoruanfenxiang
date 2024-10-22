@@ -874,6 +874,8 @@ X-Plore：https://yoyodadada.lanzouw.com/b07pt0hi
 
 小飞机网盘：https://yoyodadada.lanzn.com/b0maz1dif#9dt5 密码:9dt5
 
+闲鱼：https://yoyodadada.lanzn.com/b0mb0fq7c#f4g9 密码:f4g9
+
 ## 【Y】
 
 影迷大院：https://yoyodadada.lanzouw.com/b07psplg
