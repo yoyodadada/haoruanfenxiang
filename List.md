@@ -242,6 +242,8 @@ Emby：https://yoyodadada.lanzouw.com/b01e6i35i#ea06 密码:ea06
 
 饿了么红包助手：https://yoyodadada.lanzn.com/b0mawws5a#2vy4 密码:2vy4
 
+饿了么：https://yoyodadada.lanzn.com/b0mb0fphg#fhvj 密码:fhvj
+
 ## 【F】
 
 Fancast：https://yoyodadada.lanzouw.com/b07pspxi
