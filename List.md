@@ -342,7 +342,7 @@ i酷影视-TV版：https://yoyodadada.lanzouw.com/b01e6ilne#897r 密码:897r
 
 京东：https://yoyodadada.lanzouw.com/b01ayf0ub
 
-    超过100MB文件下载地址：https://zijieyunpan.cn/1s9y3DmVwMO ； https://www.123pan.com/s/JceA-N7Bi.html
+    超过100MB文件下载地址：https://share.feijipan.com/s/0UDB0vJZ ； https://zijieyunpan.cn/1s9y3DmVwMO ； https://www.123pan.com/s/JceA-N7Bi.html
 
 加菲猫影视：https://yoyodadada.lanzouw.com/b01c34dpe#hgmh 密码:hgmh
 
