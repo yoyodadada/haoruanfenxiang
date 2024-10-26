@@ -796,7 +796,7 @@ win10优化小工具-PC版：https://yoyodadada.lanzouw.com/b01e6ijod#e99a 密�
 
 我的电视-TV版：https://yoyodadada.lanzn.com/b01fz6nlc#b9lx 密码:b9lx
 
-WizTree-PC版：https://yoyodadada.lanzn.com/b01g116ja#atpm 密码:atpm
+WizTree（查找大文件）-PC版：https://yoyodadada.lanzn.com/b01g116ja#atpm 密码:atpm
 
 我们的电视-TV版：https://yoyodadada.lanzn.com/b0mb0hl0h#8g7z 密码:8g7z
 
