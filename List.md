@@ -1018,9 +1018,9 @@ JS脚本：https://yoyodadada.lanzouw.com/b01d4y3xe#6jnn 密码:6jnn
 
 合集-火绒工具：https://yoyodadada.lanzouw.com/b01dq24yb#aw9q 密码:aw9q
 
-合集-AI类应用（原ChatGPT相关）：https://yoyodadada.lanzouw.com/b01elg53g#cz9y 密码:cz9y
+合集-AI（原ChatGPT相关）：https://yoyodadada.lanzouw.com/b01elg53g#cz9y 密码:cz9y
 
-    部分超过100MB软件下载地址：https://www.123pan.com/s/JceA-H3Bi.html ； https://share.feijipan.com/s/yKAgbpIb
+    部分超过100MB软件下载地址：https://share.feijipan.com/s/yKAgbpIb ； https://www.123pan.com/s/JceA-H3Bi.html
 
 合集-游戏：https://yoyodadada.lanzouw.com/b01ftzljg#3adc 密码:3adc
 
