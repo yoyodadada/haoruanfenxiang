@@ -224,6 +224,8 @@ DefenderRemover-PC版：https://yoyodadada.lanzn.com/b01g116sj#gclp 密码:gclp
 
 电视浏览器-TV版：https://yoyodadada.lanzn.com/b0mazwygf#1wz4 密码:1wz4
 
+DDU（显卡驱动程序卸载工具）-PC版：https://yoyodadada.lanzn.com/b0mb0wu6h#8shc 密码:8shc
+
 ## 【E】
 
 儿歌多多：https://yoyodadada.lanzouw.com/b07pspsd
