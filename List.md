@@ -226,6 +226,8 @@ DefenderRemover-PC版：https://yoyodadada.lanzn.com/b01g116sj#gclp 密码:gclp
 
 DDU（显卡驱动程序卸载工具）-PC版：https://yoyodadada.lanzn.com/b0mb0wu6h#8shc 密码:8shc
 
+懂车帝：https://yoyodadada.lanzn.com/b0mb1ngwb#fhbl 密码:fhbl
+
 ## 【E】
 
 儿歌多多：https://yoyodadada.lanzouw.com/b07pspsd
@@ -803,6 +805,8 @@ WizTree（查找大文件）-PC版：https://yoyodadada.lanzn.com/b01g116ja#atpm
 我们的电视-TV版：https://yoyodadada.lanzn.com/b0mb0hl0h#8g7z 密码:8g7z
 
 Windows11轻松设置-PC版：https://yoyodadada.lanzn.com/b0mb0wvkh#7wi1 密码:7wi1
+
+万能遥控：https://yoyodadada.lanzn.com/b0mb1nhqb#ha27 密码:ha27
 
 ## 【X】
 
