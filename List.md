@@ -1047,3 +1047,5 @@ JS脚本：https://yoyodadada.lanzouw.com/b01d4y3xe#6jnn 密码:6jnn
     部分超过100MB软件下载地址：https://share.feijipan.com/s/ZNDASy0v
 
 合集-系统增强：https://yoyodadada.lanzn.com/b0may1h9e#1zf2 密码:1zf2
+
+合集-小米15定制版：https://yoyodadada.lanzn.com/b0mb1ngod#a71h 密码:a71h
