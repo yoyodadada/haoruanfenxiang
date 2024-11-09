@@ -212,7 +212,7 @@ Defender.Tools-PC版：https://yoyodadada.lanzouw.com/b01dq25xg#a986 密码:a986
 
 Dism++-PC版：https://yoyodadada.lanzouw.com/b01eoaeod#a710 密码:a710
 
-当贝市场极速版-TV版：https://yoyodadada.lanzouw.com/b01etkvbc#6yir 密码:6yir
+当贝市场-TV版：https://yoyodadada.lanzouw.com/b01etkvbc#6yir 密码:6yir
 
 当贝桌面-TV版：https://yoyodadada.lanzouw.com/b01fi42hi#8qrg 密码:8qrg
 
