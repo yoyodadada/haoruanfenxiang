@@ -972,6 +972,8 @@ Yamby：https://yoyodadada.lanzn.com/b0manptsd#7jwt 密码:7jwt
 
     超过100MB软件下载地址：https://www.123pan.com/s/JceA-QJMi.html
 
+真实好友：https://yoyodadada.lanzn.com/b0mb1xnta#cjza 密码:cjza
+
 ## 【未归类、合集】
 
 （一些未按应用名称首字母归类的比较好用的软件）
