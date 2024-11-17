@@ -956,6 +956,10 @@ Yamby：https://yoyodadada.lanzn.com/b0manptsd#7jwt 密码:7jwt
 
 遥控精灵：https://yoyodadada.lanzn.com/b0mawwsaf#8czg 密码:8czg
 
+央视影音：https://yoyodadada.lanzn.com/b0mb2ozaf#1ywq 密码:1ywq
+
+    超过100MB软件下载地址：https://share.feijipan.com/s/IhDesv12
+
 ## 【Z】
 
 支付宝：https://yoyodadada.lanzouw.com/b07psrmj
