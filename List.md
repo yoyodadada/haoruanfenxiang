@@ -1050,7 +1050,11 @@ JS脚本：https://yoyodadada.lanzouw.com/b01d4y3xe#6jnn 密码:6jnn
 
 合集-教学辅导：https://yoyodadada.lanzn.com/b0may06ra#bw9y 密码:bw9y
 
+    部分超过100MB软件下载地址：https://share.feijipan.com/s/3mDet6bQ
+
 合集-职考：https://yoyodadada.lanzn.com/b0may07nc#15sx 密码:15sx
+
+    部分超过100MB软件下载地址：https://share.feijipan.com/s/TdDetaXS
 
 合集-提词器：https://yoyodadada.lanzn.com/b0may0b0d#ex3x 密码:ex3x
 
