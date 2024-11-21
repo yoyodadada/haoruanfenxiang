@@ -436,6 +436,8 @@ Kodi：https://yoyodadada.lanzouw.com/b01e3tgxc#a9v3 密码:a9v3
 
 梨园行戏曲：https://yoyodadada.lanzn.com/b0may0fbi#707b 密码:707b
 
+龙卷风收音机：https://yoyodadada.lanzn.com/b0mb3025e#h4eh 密码:h4eh
+
 ## 【M】
 
 美剧鸟：https://yoyodadada.lanzouw.com/b07pspni
