@@ -322,6 +322,8 @@ HashMyFiles-PC版：https://yoyodadada.lanzouw.com/b01czjckf#4mp7 密码:4mp7
 
 HeTool-TV版：https://yoyodadada.lanzouw.com/b01e6iova#hyy5 密码:hyy5
 
+红果免费短剧：https://yoyodadada.lanzn.com/b0mb34q4b#hien 密码:hien
+
 ## 【I】
 
 Instagram：https://yoyodadada.lanzouw.com/b07psope
