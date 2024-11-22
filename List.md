@@ -238,6 +238,8 @@ Everything-PC版：https://yoyodadada.lanzouw.com/b01b8a84d
 
 ES文件浏览器：https://yoyodadada.lanzouw.com/b01d4ovji#3l0b 密码:3l0b
 
+    超过100MB文件下载地址：https://share.feijipan.com/s/wADwrdj7
+
 Emby-TV版：https://yoyodadada.lanzouw.com/b01e6i34h#gd3p 密码:gd3p
 
 Emby：https://yoyodadada.lanzouw.com/b01e6i35i#ea06 密码:ea06
