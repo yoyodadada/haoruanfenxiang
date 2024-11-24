@@ -804,7 +804,7 @@ win10优化小工具-PC版：https://yoyodadada.lanzouw.com/b01e6ijod#e99a 密�
 
 网易邮箱：https://yoyodadada.lanzouw.com/b01fi8r2h#ffo3 密码:ffo3
 
-我的电视-TV版：https://yoyodadada.lanzn.com/b01fz6nlc#b9lx 密码:b9lx
+我的电视-TV版（lizongying版）：https://yoyodadada.lanzn.com/b01fz6nlc#b9lx 密码:b9lx
 
 WizTree（查找大文件）-PC版：https://yoyodadada.lanzn.com/b01g116ja#atpm 密码:atpm
 
@@ -813,6 +813,8 @@ WizTree（查找大文件）-PC版：https://yoyodadada.lanzn.com/b01g116ja#atpm
 Windows11轻松设置-PC版：https://yoyodadada.lanzn.com/b0mb0wvkh#7wi1 密码:7wi1
 
 万能遥控：https://yoyodadada.lanzn.com/b0mb1nhqb#ha27 密码:ha27
+
+我的电视-TV版（yaoxieyoulei版）：https://yoyodadada.lanzn.com/b0mb3aj7i#cl95 密码:cl95
 
 ## 【X】
 
