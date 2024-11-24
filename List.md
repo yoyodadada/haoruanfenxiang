@@ -176,6 +176,8 @@ CIBN高清影视-TV版：https://yoyodadada.lanzouw.com/b01fi436d#7rey 密码:7r
 
     超过100MB文件下载地址：https://share.feijipan.com/s/GdCwSDHh
 
+CAD快速看图：https://yoyodadada.lanzn.com/b0mb3aovc#gs7z 密码:gs7z
+
 ## 【D】
 
 电视猫-TV版：https://yoyodadada.lanzouw.com/b07pt2dg
