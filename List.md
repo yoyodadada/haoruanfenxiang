@@ -14,6 +14,8 @@
 
 注2024.4.9：123云盘给我永久封号了，不确定已经上传的你们还能不能下载，以后超过100MB的资源我会存在飞机盘里。
 
+注2024.11.30：小飞机网盘给我封号了，所有上传在小飞机网盘的资源全都失效了，以后超过100MB的资源我放在OneDrive上，大家可以通过AList下载。在此，特别感谢@ZGQinc 帮忙申请的5T空间的OneDrive，并且帮助挂载了AList。
+
 ## 【A】
 
 APKPure：https://yoyodadada.lanzouw.com/b07psq9a
@@ -630,7 +632,7 @@ SoftCnKiller-PC版（流氓插件清理工具）：https://yoyodadada.lanzouw.co
 
 360浏览器-PC版：https://yoyodadada.lanzouw.com/b01d6hfle#bu23 密码:bu23 
 
-    超过100MB文件下载地址：https://zijieyunpan.cn/xUh0f9oS4Pi ； https://www.123pan.com/s/JceA-QoBi.html ； https://share.feijipan.com/s/2QAVypv8
+    超过100MB文件下载地址：https://alist.zgqinc.gq/yoyodadada/好软分享/S/360浏览器-PC版 ； https://zijieyunpan.cn/xUh0f9oS4Pi ； https://www.123pan.com/s/JceA-QoBi.html ； https://share.feijipan.com/s/2QAVypv8
 
 360手机浏览器：https://yoyodadada.lanzouw.com/b01d7cjkd#8zxc 密码:8zxc
 
