@@ -372,7 +372,7 @@ i酷影视-TV版：https://yoyodadada.lanzouw.com/b01e6ilne#897r 密码:897r
 
 剪映：https://yoyodadada.lanzouw.com/b01d0c7la#i63s 密码:i63s
 
-    超过100MB文件下载地址：https://zijieyunpan.cn/q9iBn3hdOqk ； https://www.123pan.com/s/JceA-TLai.html ； https://share.feijipan.com/s/M3A1bM1G
+    超过100MB文件下载地址：https://alist.zgqinc.gq/yoyodadada/好软分享/J/剪映 ； https://zijieyunpan.cn/q9iBn3hdOqk ； https://www.123pan.com/s/JceA-TLai.html ； https://share.feijipan.com/s/M3A1bM1G
 
 橘子视频：https://yoyodadada.lanzouw.com/b01dqqwgf#f8ql 密码:f8ql
 
@@ -384,7 +384,7 @@ i酷影视-TV版：https://yoyodadada.lanzouw.com/b01e6ilne#897r 密码:897r
 
 今日水印相机：https://yoyodadada.lanzn.com/b01fyq1sb#botq 密码:botq
 
-    超过100MB文件下载地址：https://www.123pan.com/s/JceA-L6Ii.html ； https://share.feijipan.com/s/myA1bstZ
+    超过100MB文件下载地址：https://alist.zgqinc.gq/yoyodadada/好软分享/J/今日水印相机 ； https://www.123pan.com/s/JceA-L6Ii.html ； https://share.feijipan.com/s/myA1bstZ
 
 991EX科学计算器：https://yoyodadada.lanzn.com/b01g10j2f#9cat 密码:9cat
 
@@ -760,7 +760,7 @@ WPS：https://yoyodadada.lanzouw.com/b07pspuf
 
 微博：https://yoyodadada.lanzouw.com/b07pxk9e
 
-    超过100MB文件下载地址：https://zijieyunpan.cn/XixoWMROTQo ； https://www.123pan.com/s/JceA-Pifi ； https://share.feijipan.com/s/qKAVvvYb
+    超过100MB文件下载地址：https://alist.zgqinc.gq/yoyodadada/好软分享/W/微博 ； https://zijieyunpan.cn/XixoWMROTQo ； https://www.123pan.com/s/JceA-Pifi ； https://share.feijipan.com/s/qKAVvvYb
 
 微软常用运行库合集-PC版：https://yoyodadada.lanzouw.com/b07pycad
 
