@@ -504,7 +504,7 @@ MyInsta：https://yoyodadada.lanzn.com/b0malqb4f#eqp4 密码:eqp4
 
 Microsoft_365：https://yoyodadada.lanzn.com/b0mb3qivc#emv5 密码:emv5
 
-    超过100MB文件下载地址：https://alist.zgqinc.gq/yoyodadada/好软分享/M/Microsoft%20365
+    超过100MB文件下载地址：https://alist.zgqinc.gq/yoyodadada/好软分享/M/Microsoft_365
 
 ## 【N】
 
