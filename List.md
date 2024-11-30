@@ -72,7 +72,7 @@ AfuseKt：https://yoyodadada.lanzn.com/b0mai25pi#7prf 密码:7prf
 
 哔哩哔哩：https://yoyodadada.lanzouw.com/b07pspyj 
 
-    超过100MB文件下载地址：https://www.123pan.com/s/JceA-JSfi ； https://share.feijipan.com/s/UIAV83qP ； https://zijieyunpan.cn/RY3hfskNJFJ
+    超过100MB文件下载地址：https://alist.zgqinc.gq/yoyodadada/好软分享/B/哔哩哔哩 ； https://www.123pan.com/s/JceA-JSfi ； https://share.feijipan.com/s/UIAV83qP ； https://zijieyunpan.cn/RY3hfskNJFJ
 
 宝贝听听：https://yoyodadada.lanzouw.com/b07psr7e
 
