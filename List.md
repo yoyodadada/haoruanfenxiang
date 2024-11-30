@@ -502,6 +502,10 @@ MyInsta：https://yoyodadada.lanzn.com/b0malqb4f#eqp4 密码:eqp4
 
 美团红包助手：https://yoyodadada.lanzn.com/b0may1hqb#acxz 密码:acxz
 
+Microsoft_365：https://yoyodadada.lanzn.com/b0mb3qivc#emv5 密码:emv5
+
+    超过100MB文件下载地址：https://alist.zgqinc.gq/yoyodadada/好软分享/M/Microsoft%20365
+
 ## 【N】
 
 南瓜影视：https://yoyodadada.lanzouw.com/b07vzgfe
