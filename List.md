@@ -448,6 +448,8 @@ Kodi：https://yoyodadada.lanzouw.com/b01e3tgxc#a9v3 密码:a9v3
 
 龙卷风收音机：https://yoyodadada.lanzn.com/b0mb3025e#h4eh 密码:h4eh
 
+LSPatch：https://yoyodadada.lanzn.com/b0mb4d7ud#39rn 密码:39rn
+
 ## 【M】
 
 美剧鸟：https://yoyodadada.lanzouw.com/b07pspni
