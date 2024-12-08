@@ -64,6 +64,8 @@ ACAC-TV版：https://yoyodadada.lanzouw.com/b01eujydc#9x02 密码:9x02
 
 AfuseKt：https://yoyodadada.lanzn.com/b0mai25pi#7prf 密码:7prf
 
+AfuseKtV-TV版：https://yoyodadada.lanzn.com/b0mb4d71e#3e2r 密码:3e2r
+
 ## 【B】
 
 百度网盘：https://yoyodadada.lanzouw.com/b07pspid 
