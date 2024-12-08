@@ -750,7 +750,7 @@ wifi万能钥匙：https://yoyodadada.lanzouw.com/b07pspej
 
 WPS：https://yoyodadada.lanzouw.com/b07pspuf
 
-    超过100MB版本下载地址：https://zijieyunpan.cn/CwJhwUSu0pN ； https://www.123pan.com/s/JceA-5zai.html ； https://share.feijipan.com/s/fiAWeWG7
+    超过100MB版本下载地址：https://alist.zgqinc.gq/yoyodadada/好软分享/W/WPS ； https://zijieyunpan.cn/CwJhwUSu0pN ； https://www.123pan.com/s/JceA-5zai.html ； https://share.feijipan.com/s/fiAWeWG7
 
 完美视频大全：https://yoyodadada.lanzouw.com/b07psq1c
 
@@ -788,7 +788,7 @@ WPS：https://yoyodadada.lanzouw.com/b07pspuf
 
 WPS-PC版：https://yoyodadada.lanzouw.com/b01c3bwhc#8fdh  密码:8fdh 
 
-    超过100MB文件下载地址：https://zijieyunpan.com/6XP5mgGDTaj ； https://www.123pan.com/s/JceA-3efi ； https://share.feijipan.com/s/jHAV91iq
+    超过100MB文件下载地址：https://alist.zgqinc.gq/yoyodadada/好软分享/W/WPS-PC版 ； https://zijieyunpan.com/6XP5mgGDTaj ； https://www.123pan.com/s/JceA-3efi ； https://share.feijipan.com/s/jHAV91iq
 
 WinRAR-PC版：https://yoyodadada.lanzouw.com/b01cdgqih#252n 密码:252n
 
