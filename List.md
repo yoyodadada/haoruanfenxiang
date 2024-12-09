@@ -278,7 +278,7 @@ Flipy翻页时钟：https://yoyodadada.lanzn.com/b0mb0hmud#cjo5 密码:cjo5
 
 高德地图：https://yoyodadada.lanzouw.com/b07psqne 
 
-    超过100MB文件下载地址：https://share.feijipan.com/s/nCBAuXT8 ； https://www.123pan.com/s/JceA-CUfi ；https://zijieyunpan.cn/17zVuUbYv4F
+    超过100MB文件下载地址：https://alist.zgqinc.gq/yoyodadada/好软分享/G/高德地图 ； https://share.feijipan.com/s/nCBAuXT8 ； https://www.123pan.com/s/JceA-CUfi ；https://zijieyunpan.cn/17zVuUbYv4F
 
 格式工厂-PC版：https://yoyodadada.lanzouw.com/b01c4aymj#5b45 密码:5b45
 
