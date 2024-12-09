@@ -708,7 +708,7 @@ TV影院-TV版：https://yoyodadada.lanzouw.com/b01c4pi6h#al8e 密码:al8e
 
 TikTok：https://yoyodadada.lanzouw.com/b01e3tiof#f1a8 密码:f1a8
 
-    超过100MB文件下载地址：https://www.123pan.com/s/JceA-Uhai ； https://zijieyunpan.cn/FxV1Z8KoKgX ； https://share.feijipan.com/s/TQAVvpk5
+    超过100MB文件下载地址：https://alist.zgqinc.gq/yoyodadada/好软分享/T/TikTok ； https://www.123pan.com/s/JceA-Uhai ； https://zijieyunpan.cn/FxV1Z8KoKgX ； https://share.feijipan.com/s/TQAVvpk5
     
 特狗影视：https://yoyodadada.lanzouw.com/b01e6iubg#casj 密码:casj
 
