@@ -532,6 +532,10 @@ Nekogram：https://yoyodadada.lanzouw.com/b01e8lwre#25or 密码:25or
 
 Optimizer-PC版（系统设置工具）：https://yoyodadada.lanzn.com/b01g115te#4s41 密码:4s41
 
+Office-PC版：https://yoyodadada.lanzn.com/b0mb4e8ej#es4x 密码:es4x
+
+    超过100MB文件下载地址：https://alist.zgqinc.gq/yoyodadada/好软分享/O/Office-PC版
+
 ## 【P】
 
 葡萄影视：https://yoyodadada.lanzouw.com/b07pspch
