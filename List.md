@@ -398,7 +398,7 @@ i酷影视-TV版：https://yoyodadada.lanzouw.com/b01e6ilne#897r 密码:897r
 
 酷我音乐：https://yoyodadada.lanzouw.com/b07ryhlg 
 
-    超过100MB文件下载地址：https://zijieyunpan.com/RtA2Xy4oVVr ； https://www.123pan.com/s/JceA-kUfi ； https://pan.bilnn.cn/s/bwGzFO ； https://share.feijipan.com/s/zGAV8Sbi
+    超过100MB文件下载地址：https://alist.zgqinc.gq/yoyodadada/好软分享/K/酷我音乐 ； https://zijieyunpan.com/RtA2Xy4oVVr ； https://www.123pan.com/s/JceA-kUfi ； https://pan.bilnn.cn/s/bwGzFO ； https://share.feijipan.com/s/zGAV8Sbi
 
 酷我音乐-PC版：https://yoyodadada.lanzouw.com/b01ay4hkh
 
