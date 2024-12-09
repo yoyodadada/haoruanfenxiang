@@ -432,7 +432,7 @@ Kodi：https://yoyodadada.lanzouw.com/b01e3tgxc#a9v3 密码:a9v3
 
 雷电模拟器-PC版：https://yoyodadada.lanzouw.com/b01ctft0h#esp8 密码:esp8
 
-    超过100MB文件下载地址：https://www.123pan.com/s/JceA-pUfi ； https://zijieyunpan.cn/uriyaSq83Ts ； https://share.feijipan.com/s/heA1bSWe
+    超过100MB文件下载地址：https://alist.zgqinc.gq/yoyodadada/好软分享/L/雷电模拟器-PC版 ； https://www.123pan.com/s/JceA-pUfi ； https://zijieyunpan.cn/uriyaSq83Ts ； https://share.feijipan.com/s/heA1bSWe
 
 蓝奏云盘-PC版（第三方蓝奏云客户端）：https://yoyodadada.lanzouw.com/b01fc8swh#d73u 密码:d73u
 
