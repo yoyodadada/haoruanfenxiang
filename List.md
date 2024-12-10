@@ -918,6 +918,8 @@ X-Plore：https://yoyodadada.lanzouw.com/b07pt0hi
 
     超过100MB文件下载地址：https://share.feijipan.com/s/LsDB0l6l
 
+新浪邮箱：https://yoyodadada.lanzn.com/b0mb4iv5c#fe24 密码:fe24
+
 ## 【Y】
 
 影迷大院：https://yoyodadada.lanzouw.com/b07psplg
