@@ -908,7 +908,7 @@ X-Plore：https://yoyodadada.lanzouw.com/b07pt0hi
 
 修改水印相机：https://yoyodadada.lanzn.com/b0may0ede#fj3t 密码:fj3t
 
-    超过100MB文件下载地址：https://share.feijipan.com/s/YXCwRQXC
+    超过100MB文件下载地址：https://alist.zgqinc.gq/yoyodadada/好软分享/X/修改水印相机 ； https://share.feijipan.com/s/YXCwRQXC
 
 小飞机网盘：https://yoyodadada.lanzn.com/b0maz1dif#9dt5 密码:9dt5
 
