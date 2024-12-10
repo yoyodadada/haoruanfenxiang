@@ -480,7 +480,7 @@ MUJI_to_Sleep：https://yoyodadada.lanzouw.com/b07psr6d
 
 墨迹天气：https://yoyodadada.lanzouw.com/b01cdhakj#2m1v 密码:2m1v
 
-    超过100MB文件下载地址：https://share.feijipan.com/s/zJAp9Ya5
+    超过100MB文件下载地址：https://alist.zgqinc.gq/yoyodadada/好软分享/M/墨迹天气 ； https://share.feijipan.com/s/zJAp9Ya5
 
 猫影视TV-TV版：https://yoyodadada.lanzouw.com/b01crl5kh#3u62 密码:3u62
 
