@@ -102,7 +102,7 @@ AfuseKtV-TV版：https://yoyodadada.lanzn.com/b0mb4d71e#3e2r 密码:3e2r
 
 B612咔叽：https://yoyodadada.lanzouw.com/b01bzf7oj#6h71 密码:6h71 
 
-    超过100MB文件下载地址：https://zijieyunpan.com/96vYPO4XanJ ； https://www.123pan.com/s/JceA-UUfi  ； https://share.feijipan.com/s/S8AV9nMD
+    超过100MB文件下载地址：https://alist.zgqinc.gq/yoyodadada/好软分享/B/B612咔叽 ； https://zijieyunpan.com/96vYPO4XanJ ； https://www.123pan.com/s/JceA-UUfi  ； https://share.feijipan.com/s/S8AV9nMD
 
 Bmap（白马地图）：https://yoyodadada.lanzouw.com/b01c13ojg#ht7i 密码:ht7i
 
