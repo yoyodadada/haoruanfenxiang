@@ -630,7 +630,7 @@ SD_Maid：https://yoyodadada.lanzouw.com/b07pt0fg
 
 扫描全能王：https://yoyodadada.lanzouw.com/b07pt10h
 
-    超过100MB文件下载地址：https://zijieyunpan.cn/k5pQ9EPUjir ； https://www.123pan.com/s/JceA-w5ai.html ； https://share.feijipan.com/s/ZAAxDGFL
+    超过100MB文件下载地址：https://alist.zgqinc.gq/yoyodadada/好软分享/S/扫描全能王 ； https://zijieyunpan.cn/k5pQ9EPUjir ； https://www.123pan.com/s/JceA-w5ai.html ； https://share.feijipan.com/s/ZAAxDGFL
 
 搜狗输入法-PC版：https://yoyodadada.lanzouw.com/b07pv5xg
 
