@@ -48,7 +48,7 @@ AnyTXT.Searcher-PC版：https://yoyodadada.lanzouw.com/b01dlv3ej#6imc 密码:6im
 
 阿里云盘：https://yoyodadada.lanzouw.com/b01dqeaqb#9jtt 密码:9jtt
 
-    超过100MB文件下载地址：https://zijieyunpan.cn/Bpcvqytv4CO ； https://www.123pan.com/s/JceA-k6fi ； https://share.feijipan.com/s/HBAVvEuy
+    超过100MB文件下载地址：https://alist.zgqinc.gq/yoyodadada/好软分享/A/阿里云盘 ； https://zijieyunpan.cn/Bpcvqytv4CO ； https://www.123pan.com/s/JceA-k6fi ； https://share.feijipan.com/s/HBAVvEuy
 
 安兔兔评测：https://yoyodadada.lanzouw.com/b01dqebqh#i8rh 密码:i8rh
 
