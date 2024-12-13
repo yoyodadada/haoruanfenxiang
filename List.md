@@ -862,7 +862,7 @@ X-Plore：https://yoyodadada.lanzouw.com/b07pt0hi
 
 喜马拉雅：https://yoyodadada.lanzouw.com/b01ayf0wd
 
-    超过100MB文件下载地址：https://www.123pan.com/s/JceA-udIi.html ； https://share.feijipan.com/s/7NAp3vfA
+    超过100MB文件下载地址：https://alist.zgqinc.gq/yoyodadada/好软分享/X/喜马拉雅 ； https://www.123pan.com/s/JceA-udIi.html ； https://share.feijipan.com/s/7NAp3vfA
 
 迅游手游加速器：https://yoyodadada.lanzouw.com/b01b1444b
 
