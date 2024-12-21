@@ -910,7 +910,7 @@ X-Plore：https://yoyodadada.lanzouw.com/b07pt0hi
 
 小伴龙：https://yoyodadada.lanzn.com/b0mawymfg#hl0y 密码:hl0y
 
-    超过100MB文件下载地址：https://share.feijipan.com/s/60CbMiMy
+    超过100MB文件下载地址：https://alist.zgqinc.gq/yoyodadada/好软分享/X/小伴龙 ； https://share.feijipan.com/s/60CbMiMy
 
 修改水印相机：https://yoyodadada.lanzn.com/b0may0ede#fj3t 密码:fj3t
 
