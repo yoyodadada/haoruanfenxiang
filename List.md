@@ -332,6 +332,8 @@ HeTool-TV版：https://yoyodadada.lanzouw.com/b01e6iova#hyy5 密码:hyy5
 
 红果免费短剧：https://yoyodadada.lanzn.com/b0mb34q4b#hien 密码:hien
 
+    超过100MB文件下载地址：https://alist.zgqinc.gq/yoyodadada/好软分享/H/红果免费短剧
+
 ## 【I】
 
 Instagram：https://yoyodadada.lanzouw.com/b07psope
