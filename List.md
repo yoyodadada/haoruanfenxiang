@@ -1084,7 +1084,7 @@ JS脚本：https://yoyodadada.lanzouw.com/b01d4y3xe#6jnn 密码:6jnn
 
 合集-教学辅导：https://yoyodadada.lanzn.com/b0may06ra#bw9y 密码:bw9y
 
-    部分超过100MB软件下载地址：https://share.feijipan.com/s/3mDet6bQ
+    部分超过100MB软件下载地址：https://alist.zgqinc.gq/yoyodadada/好软分享/未归类、合集/合集-教学辅导 ； https://share.feijipan.com/s/3mDet6bQ
 
 合集-职考：https://yoyodadada.lanzn.com/b0may07nc#15sx 密码:15sx
 
