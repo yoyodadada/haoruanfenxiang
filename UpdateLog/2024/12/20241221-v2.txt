@@ -1,0 +1,13 @@
+20241221-v2更新内容：
+1.AfuseKt更新至v1.3.4。
+2.AfuseKtV-TV版更新至v1.4.3-10234。
+3.BV-TV版更新至v0.2.10.r704.af7c953.alpha。
+4.emby更新至v3.4.30。
+5.合集-游戏更新FlappyBird-v1.8。
+6.洛雪音乐-PC版更新至v2.10.0-beta.9绿色版。
+7.我的电视-TV版（@lizongying版）更新至O版v1.3.8.10。
+8.合集-OCR文字识别更新PandaOCR.Pro_5.57。
+9.pilipala更新至v1.0.26（含ios版）。
+10.影视更新fongmi版v2.7.0。
+11.影视-TV版更新fongmi版v2.7.0。
+注：本次更新GitHub资源，下次更新mod作品。
