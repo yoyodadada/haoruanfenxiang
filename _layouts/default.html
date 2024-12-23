@@ -42,5 +42,14 @@
       </footer>
     </div>
 
+    <script>
+      document.addEventListener("DOMContentLoaded", function () {
+        const regex = /(https?:\/\/[^\s]+)/g;
+        document.body.innerHTML = document.body.innerHTML.replace(regex, function (url) {
+          return `<a href="${url}" target="_blank" rel="noopener">${url}</a>`;
+        });
+      });
+    </script>
+    
   </body>
 </html>
