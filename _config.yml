@@ -1,12 +1,12 @@
-# markdown: kramdown
-# kramdown:
-#   auto_ids: true
-#   parse_block_html: true
-#   auto_link: true
-markdown: redcarpet
-redcarpet:
-  extensions:
-    - autolink
+markdown: kramdown
+kramdown:
+  auto_ids: true
+  parse_block_html: true
+  auto_link: true
+# markdown: redcarpet
+# redcarpet:
+#   extensions:
+#     - autolink
 highlighter: rouge
 theme: null
 title: 好软分享
