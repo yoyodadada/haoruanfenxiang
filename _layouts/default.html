@@ -45,9 +45,26 @@
     <script>
       document.addEventListener("DOMContentLoaded", function () {
         const regex = /(https?:\/\/[^\s]+)/g;
-        document.body.innerHTML = document.body.innerHTML.replace(regex, function (url) {
-          return `<a href="${url}" target="_blank" rel="noopener">${url}</a>`;
-        });
+    
+        function linkifyTextNodes(node) {
+          // 如果是文本节点，检查并替换链接
+          if (node.nodeType === Node.TEXT_NODE) {
+            const text = node.nodeValue;
+            if (regex.test(text)) {
+              const span = document.createElement("span");
+              span.innerHTML = text.replace(regex, function (url) {
+                return `<a href="${url}" target="_blank" rel="noopener">${url}</a>`;
+              });
+              node.replaceWith(span);
+            }
+          } else if (node.nodeType === Node.ELEMENT_NODE && node.tagName !== "A") {
+            // 遍历子节点，避免修改 <a> 标签中的内容
+            Array.from(node.childNodes).forEach(linkifyTextNodes);
+          }
+        }
+    
+        // 对整个 body 的子节点递归处理
+        linkifyTextNodes(document.body);
       });
     </script>
     
