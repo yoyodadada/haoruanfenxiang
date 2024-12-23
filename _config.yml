@@ -1,0 +1,12 @@
+markdown: kramdown
+highlighter: rouge
+theme: null
+title: 好软分享
+
+
+exclude:
+  # - LICENSE.txt
+  # - README.md
+  - CNAME
+  - Gemfile
+  - Gemfile.lock
