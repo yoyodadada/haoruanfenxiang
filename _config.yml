@@ -7,6 +7,8 @@ highlighter: rouge
 theme: null
 title: 好软分享
 encoding: utf-8
+markdown_ext:
+"README.md"
 
 include:
   - README.md
