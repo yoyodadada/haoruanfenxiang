@@ -14,7 +14,7 @@ GitHub：https://github.com/yoyodadada/haoruanfenxiang
 
 GitHub：https://github.com/yoyodadada/haoruanfenxiang/blob/master/List.md
 
-github.io（免翻）：https://yoyodadada.github.io/haoruanfenxiang/List.md
+pages.dev（免翻）：https://haoruanfenxiang.pages.dev/List
 
 ## TG频道及群组：
 
