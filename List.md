@@ -618,6 +618,8 @@ QQ邮箱：https://yoyodadada.lanzouw.com/b01e6ir3a#frth 密码:frth
 
 全民K歌-TV版：https://yoyodadada.lanzouw.com/b01fi427i#dsqi 密码:dsqi
 
+七猫免费听书：https://yoyodadada.lanzn.com/b0mb5pypi#2vza 密码:2vza
+
 ## 【R】
 
 日期计算器-PC版：https://yoyodadada.lanzouw.com/b07pv60j
