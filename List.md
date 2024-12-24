@@ -126,6 +126,7 @@ AfuseKtV-TV版：https://yoyodadada.lanzn.com/b0mb4d71e#3e2r 密码:3e2r
 百度地图：https://yoyodadada.lanzouw.com/b07ujf0b
 
 - 超过100MB文件下载地址：
++ https://alist.zgqinc.gq/yoyodadada/好软分享/B/百度地图
 + https://share.feijipan.com/s/8VBC4mLc
 + https://www.123pan.com/s/JceA-k6ai.html
 
