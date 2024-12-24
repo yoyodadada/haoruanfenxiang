@@ -18,7 +18,8 @@ layout: default
 
 注2024.4.9：123云盘给我永久封号了，不确定已经上传的你们还能不能下载，以后超过100MB的资源我会存在飞机盘里。
 
-注2024.11.30：小飞机网盘给我封号了，所有上传在小飞机网盘的资源全都失效了，以后超过100MB的资源我放在OneDrive上，大家可以通过AList下载。在此，特别感谢@ZGQinc 帮忙申请的5T空间的OneDrive，并且帮助挂载了AList。
+注2024.11.30：小飞机网盘给我封号了，所有上传在小飞机网盘的资源全都失效了，以后超过100MB的资源我放在OneDrive上，大家可以通过AList下载。在此，特别感谢[@ZGQinc](https://t.me/ZGQinc)帮忙申请的5T空间的OneDrive，并且帮助挂载了AList；特别感谢 [@i887141](https://t.me/i887141)提供VPS。
+
 
 # 许可证
 
@@ -28,7 +29,7 @@ layout: default
 
 # 目录
 
-### [A](#a) [B](#b) [C](#c) [D](#d) [E](#e) [F](#f) [G](#g) [H](#h) [I](#i) [J](#j) [K](#k) [L](#l) [M](#m) [N](#n) [O](#o) [P](#p) [Q](#q) [R](#r) [S](#s) [T](#t) [U](#u) [V](#v) [W](#w) [X](#x) [Y](#y) [Z](#z) [未归类合集](#未归类、合集)
+### [A](#a) [B](#b) [C](#c) [D](#d) [E](#e) [F](#f) [G](#g) [H](#h) [I](#i) [J](#j) [K](#k) [L](#l) [M](#m) [N](#n) [O](#o) [P](#p) [Q](#q) [R](#r) [S](#s) [T](#t) [U](#u) [V](#v) [W](#w) [X](#x) [Y](#y) [Z](#z) [未归类、合集](#未归类合集)
 
 ---
 
@@ -38,7 +39,9 @@ APKPure：https://yoyodadada.lanzouw.com/b07psq9a
 
 爱奇艺：https://yoyodadada.lanzouw.com/b07psrbi
 
-    超过100MB文件下载地址：https://share.feijipan.com/s/rvCOTkIQ ； https://www.123pan.com/s/JceA-KQwi.html
+- 超过100MB文件下载地址：
++ https://share.feijipan.com/s/rvCOTkIQ
++ https://www.123pan.com/s/JceA-KQwi.html
 
 ADM：https://yoyodadada.lanzouw.com/b07pt0kb
 
@@ -56,15 +59,23 @@ AirPin-TV版：https://yoyodadada.lanzouw.com/b07pt2jc
 
 阿里云盘-PC版：https://yoyodadada.lanzouw.com/b01dlv32h#f4po 密码:f4po
 
-    超过100MB文件下载地址：https://www.123pan.com/s/JceA-EhIi.html ； https://share.feijipan.com/s/APAxNN5P
+- 超过100MB文件下载地址：
++ https://www.123pan.com/s/JceA-EhIi.html
++ https://share.feijipan.com/s/APAxNN5P
 
 AnyTXT.Searcher-PC版：https://yoyodadada.lanzouw.com/b01dlv3ej#6imc 密码:6imc
 
-    超过100MB文件下载地址：https://www.123pan.com/s/JceA-8hai ； https://share.feijipan.com/s/4KA9ydAr
+- 超过100MB文件下载地址：
++ https://www.123pan.com/s/JceA-8hai
++ https://share.feijipan.com/s/4KA9ydAr
 
 阿里云盘：https://yoyodadada.lanzouw.com/b01dqeaqb#9jtt 密码:9jtt
 
-    超过100MB文件下载地址：https://alist.zgqinc.gq/yoyodadada/好软分享/A/阿里云盘 ； https://zijieyunpan.cn/Bpcvqytv4CO ； https://www.123pan.com/s/JceA-k6fi ； https://share.feijipan.com/s/HBAVvEuy
+- 超过100MB文件下载地址：
++ https://alist.zgqinc.gq/yoyodadada/好软分享/A/阿里云盘
++ https://zijieyunpan.cn/Bpcvqytv4CO
++ https://www.123pan.com/s/JceA-k6fi
++ https://share.feijipan.com/s/HBAVvEuy
 
 安兔兔评测：https://yoyodadada.lanzouw.com/b01dqebqh#i8rh 密码:i8rh
 
@@ -74,7 +85,8 @@ AdGuard：https://yoyodadada.lanzouw.com/b01dqpheh#5lr9 密码:5lr9
 
 阿里云盘小白羊-PC版：https://yoyodadada.lanzouw.com/b01ept66h#9aee 密码:9aee
 
-    超过100MB文件下载地址：https://zijieyunpan.cn/PP4UPshxEtO
+- 超过100MB文件下载地址：
++ https://zijieyunpan.cn/PP4UPshxEtO
     
 ACAC-TV版：https://yoyodadada.lanzouw.com/b01eujydc#9x02 密码:9x02
 
@@ -86,11 +98,16 @@ AfuseKtV-TV版：https://yoyodadada.lanzn.com/b0mb4d71e#3e2r 密码:3e2r
 
 百度网盘：https://yoyodadada.lanzouw.com/b07pspid 
 
-    超过100MB文件下载地址：：https://zijieyunpan.com/6No033RJMU1 ； https://www.123pan.com/s/JceA-LhBi.html
+- 超过100MB文件下载地址：：https://zijieyunpan.com/6No033RJMU1
++ https://www.123pan.com/s/JceA-LhBi.html
 
 哔哩哔哩：https://yoyodadada.lanzouw.com/b07pspyj 
 
-    超过100MB文件下载地址：https://alist.zgqinc.gq/yoyodadada/好软分享/B/哔哩哔哩 ； https://www.123pan.com/s/JceA-JSfi ； https://share.feijipan.com/s/UIAV83qP ； https://zijieyunpan.cn/RY3hfskNJFJ
+- 超过100MB文件下载地址：
++ https://alist.zgqinc.gq/yoyodadada/好软分享/B/哔哩哔哩
++ https://www.123pan.com/s/JceA-JSfi
++ https://share.feijipan.com/s/UIAV83qP
++ https://zijieyunpan.cn/RY3hfskNJFJ
 
 宝贝听听：https://yoyodadada.lanzouw.com/b07psr7e
 
@@ -108,17 +125,26 @@ AfuseKtV-TV版：https://yoyodadada.lanzn.com/b0mb4d71e#3e2r 密码:3e2r
 
 百度地图：https://yoyodadada.lanzouw.com/b07ujf0b
 
-    超过100MB文件下载地址：https://alist.zgqinc.gq/yoyodadada/好软分享/B/百度地图 ； https://share.feijipan.com/s/8VBC4mLc ； https://www.123pan.com/s/JceA-k6ai.html
+- 超过100MB文件下载地址：
++ https://alist.zgqinc.gq/yoyodadada/好软分享/B/百度地图
++ https://share.feijipan.com/s/8VBC4mLc
++ https://www.123pan.com/s/JceA-k6ai.html
 
 百度贴吧：https://yoyodadada.lanzouw.com/b01bwl3xc
 
 百度输入法：https://yoyodadada.lanzouw.com/b01byu8bg
 
-    超过100MB文件下载地址：https://share.feijipan.com/s/yuCQTTlX ； https://www.123pan.com/s/JceA-ohIi.html
+- 超过100MB文件下载地址：
++ https://share.feijipan.com/s/yuCQTTlX
++ https://www.123pan.com/s/JceA-ohIi.html
 
 B612咔叽：https://yoyodadada.lanzouw.com/b01bzf7oj#6h71 密码:6h71 
 
-    超过100MB文件下载地址：https://alist.zgqinc.gq/yoyodadada/好软分享/B/B612咔叽 ； https://zijieyunpan.com/96vYPO4XanJ ； https://www.123pan.com/s/JceA-UUfi  ； https://share.feijipan.com/s/S8AV9nMD
+- 超过100MB文件下载地址：
++ https://alist.zgqinc.gq/yoyodadada/好软分享/B/B612咔叽
++ https://zijieyunpan.com/96vYPO4XanJ
++ https://www.123pan.com/s/JceA-UUfi 
++ https://share.feijipan.com/s/S8AV9nMD
 
 Bmap（白马地图）：https://yoyodadada.lanzouw.com/b01c13ojg#ht7i 密码:ht7i
 
@@ -126,7 +152,10 @@ Bmap（白马地图）：https://yoyodadada.lanzouw.com/b01c13ojg#ht7i 密码:ht
 
 百度网盘-PC版：https://yoyodadada.lanzouw.com/b01c539xe#gx0l 密码:gx0l
 
-    超过100MB文件下载地址：https://zijieyunpan.cn/208r0TXDOUm ； https://www.123pan.com/s/JceA-I5ai.html
+- 超过100MB文件下载地址：
++ https://alist.zgqinc.gq/yoyodadada/好软分享/B/百度地图
++ https://share.feijipan.com/s/8VBC4mLc
++ https://www.123pan.com/s/JceA-k6ai.html
 
 白菜追剧（兔子窝）：https://yoyodadada.lanzouw.com/b01cj7euj#er6s 密码:er6s
 
@@ -168,7 +197,8 @@ CIBN聚精彩-TV版：https://yoyodadada.lanzouw.com/b07pt2mf
 
 CAD看图王：https://yoyodadada.lanzouw.com/b07ptt2h
 
-    超过100MB文件下载地址：https://share.feijipan.com/s/DlBUROxn
+- 超过100MB文件下载地址：
++ https://share.feijipan.com/s/DlBUROxn
 
 CGI-PC版（系统镜像恢复工具）：https://yoyodadada.lanzouw.com/b07pv6fe
 
@@ -184,7 +214,8 @@ CIBN聚体育-TV版：https://yoyodadada.lanzouw.com/b01co9mcb#bmux 密码:bmux
 
 彩云天气：https://yoyodadada.lanzouw.com/b01d9lneh#e67a 密码:e67a
 
-    超过100MB文件下载地址：https://share.feijipan.com/s/8YBViyjr
+- 超过100MB文件下载地址：
++ https://share.feijipan.com/s/8YBViyjr
 
 COKEMV：https://yoyodadada.lanzouw.com/b01dccxli#8fe2 密码:8fe2
 
@@ -194,7 +225,9 @@ CIBN高清影视-TV版：https://yoyodadada.lanzouw.com/b01fi436d#7rey 密码:7r
 
 车来了：https://yoyodadada.lanzn.com/b0may0g1e#fc42 密码:fc42
 
-    超过100MB文件下载地址：https://alist.zgqinc.gq/yoyodadada/好软分享/C/车来了 ； https://share.feijipan.com/s/GdCwSDHh
+- 超过100MB文件下载地址：
++ https://alist.zgqinc.gq/yoyodadada/好软分享/C/车来了
++ https://share.feijipan.com/s/GdCwSDHh
 
 CAD快速看图：https://yoyodadada.lanzn.com/b0mb3aovc#gs7z 密码:gs7z
 
@@ -214,11 +247,13 @@ CCleaner：https://yoyodadada.lanzn.com/b0mb5px2j#3v7m 密码:3v7m
 
 豆瓣：https://yoyodadada.lanzouw.com/b01bh2tab
 
-    超过100MB文件下载地址：https://www.123pan.com/s/JceA-jvMi.html
+- 超过100MB文件下载地址：
++ https://www.123pan.com/s/JceA-jvMi.html
 
 大师兄影视：https://yoyodadada.lanzouw.com/b01caip6d#e7mc 密码:e7mc
 
-    123云盘下载地址（手机端可直接下载apk）：https://www.123pan.com/s/JceA-1NJi.html
+- 123云盘下载地址（手机端可直接下载apk）：
++ https://www.123pan.com/s/JceA-1NJi.html
 
 大师兄影视-TV版：https://yoyodadada.lanzouw.com/b01crl4yf#i6vd 密码:i6vd
 
@@ -226,7 +261,10 @@ CCleaner：https://yoyodadada.lanzn.com/b0mb5px2j#3v7m 密码:3v7m
 
 抖音：https://yoyodadada.lanzouw.com/b01doycpa#c8gz 密码:c8gz
 
-    超过100MB文件下载地址：https://zijieyunpan.cn/Wmp0ozhw1zN ； https://www.123pan.com/s/JceA-f6fi ； https://share.feijipan.com/s/NvAVzNcW
+- 超过100MB文件下载地址：
++ https://zijieyunpan.cn/Wmp0ozhw1zN
++ https://www.123pan.com/s/JceA-f6fi
++ https://share.feijipan.com/s/NvAVzNcW
 
 Defender.Tools-PC版：https://yoyodadada.lanzouw.com/b01dq25xg#a986 密码:a986
 
@@ -264,13 +302,15 @@ Everything-PC版：https://yoyodadada.lanzouw.com/b01b8a84d
 
 ES文件浏览器：https://yoyodadada.lanzouw.com/b01d4ovji#3l0b 密码:3l0b
 
-    超过100MB文件下载地址：https://share.feijipan.com/s/wADwrdj7
+- 超过100MB文件下载地址：
++ https://share.feijipan.com/s/wADwrdj7
 
 Emby-TV版：https://yoyodadada.lanzouw.com/b01e6i34h#gd3p 密码:gd3p
 
 Emby：https://yoyodadada.lanzouw.com/b01e6i35i#ea06 密码:ea06
 
-    超过100MB文件下载地址：https://share.feijipan.com/s/CXCYdDkF
+- 超过100MB文件下载地址：
++ https://share.feijipan.com/s/CXCYdDkF
 
 饿了么红包助手：https://yoyodadada.lanzn.com/b0mawws5a#2vy4 密码:2vy4
 
@@ -298,11 +338,15 @@ Flipy翻页时钟：https://yoyodadada.lanzn.com/b0mb0hmud#cjo5 密码:cjo5
 
 高德地图：https://yoyodadada.lanzouw.com/b07psqne 
 
-    超过100MB文件下载地址：https://alist.zgqinc.gq/yoyodadada/好软分享/G/高德地图 ； https://share.feijipan.com/s/nCBAuXT8 ； https://www.123pan.com/s/JceA-CUfi ；https://zijieyunpan.cn/17zVuUbYv4F
+- 超过100MB文件下载地址：
++ https://alist.zgqinc.gq/yoyodadada/好软分享/G/高德地图
++ https://share.feijipan.com/s/nCBAuXT8
++ https://www.123pan.com/s/JceA-CUfi ；https://zijieyunpan.cn/17zVuUbYv4F
 
 格式工厂-PC版：https://yoyodadada.lanzouw.com/b01c4aymj#5b45 密码:5b45
 
-    超过100MB文件下载地址：https://www.123pan.com/s/JceA-5vMi.html
+- 超过100MB文件下载地址：
++ https://www.123pan.com/s/JceA-5vMi.html
 
 Google Play商店：https://yoyodadada.lanzouw.com/b01e2aqla#8n64 密码:8n64
 
@@ -350,7 +394,8 @@ HeTool-TV版：https://yoyodadada.lanzouw.com/b01e6iova#hyy5 密码:hyy5
 
 红果免费短剧：https://yoyodadada.lanzn.com/b0mb34q4b#hien 密码:hien
 
-    超过100MB文件下载地址：https://alist.zgqinc.gq/yoyodadada/好软分享/H/红果免费短剧
+- 超过100MB文件下载地址：
++ https://alist.zgqinc.gq/yoyodadada/好软分享/H/红果免费短剧
 
 ## 【I】
 
@@ -374,13 +419,17 @@ i酷影视-TV版：https://yoyodadada.lanzouw.com/b01e6ilne#897r 密码:897r
 
 今日头条：https://yoyodadada.lanzouw.com/b07pspfa
 
-    超过100MB文件下载地址：https://www.123pan.com/s/JceA-EfMi.html
+- 超过100MB文件下载地址：
++ https://www.123pan.com/s/JceA-EfMi.html
 
 鲸鱼TV-TV版：https://yoyodadada.lanzouw.com/b07qdyqb
 
 京东：https://yoyodadada.lanzouw.com/b01ayf0ub
 
-    超过100MB文件下载地址：https://share.feijipan.com/s/0UDB0vJZ ； https://zijieyunpan.cn/1s9y3DmVwMO ； https://www.123pan.com/s/JceA-N7Bi.html
+- 超过100MB文件下载地址：
++ https://share.feijipan.com/s/0UDB0vJZ
++ https://zijieyunpan.cn/1s9y3DmVwMO
++ https://www.123pan.com/s/JceA-N7Bi.html
 
 加菲猫影视：https://yoyodadada.lanzouw.com/b01c34dpe#hgmh 密码:hgmh
 
@@ -396,7 +445,11 @@ i酷影视-TV版：https://yoyodadada.lanzouw.com/b01e6ilne#897r 密码:897r
 
 剪映：https://yoyodadada.lanzouw.com/b01d0c7la#i63s 密码:i63s
 
-    超过100MB文件下载地址：https://alist.zgqinc.gq/yoyodadada/好软分享/J/剪映 ； https://zijieyunpan.cn/q9iBn3hdOqk ； https://www.123pan.com/s/JceA-TLai.html ； https://share.feijipan.com/s/M3A1bM1G
+- 超过100MB文件下载地址：
++ https://alist.zgqinc.gq/yoyodadada/好软分享/J/剪映
++ https://zijieyunpan.cn/q9iBn3hdOqk
++ https://www.123pan.com/s/JceA-TLai.html
++ https://share.feijipan.com/s/M3A1bM1G
 
 橘子视频：https://yoyodadada.lanzouw.com/b01dqqwgf#f8ql 密码:f8ql
 
@@ -408,7 +461,10 @@ i酷影视-TV版：https://yoyodadada.lanzouw.com/b01e6ilne#897r 密码:897r
 
 今日水印相机：https://yoyodadada.lanzn.com/b01fyq1sb#botq 密码:botq
 
-    超过100MB文件下载地址：https://alist.zgqinc.gq/yoyodadada/好软分享/J/今日水印相机 ； https://www.123pan.com/s/JceA-L6Ii.html ； https://share.feijipan.com/s/myA1bstZ
+- 超过100MB文件下载地址：
++ https://alist.zgqinc.gq/yoyodadada/好软分享/J/今日水印相机
++ https://www.123pan.com/s/JceA-L6Ii.html
++ https://share.feijipan.com/s/myA1bstZ
 
 991EX科学计算器：https://yoyodadada.lanzn.com/b01g10j2f#9cat 密码:9cat
 
@@ -420,7 +476,12 @@ i酷影视-TV版：https://yoyodadada.lanzouw.com/b01e6ilne#897r 密码:897r
 
 酷我音乐：https://yoyodadada.lanzouw.com/b07ryhlg 
 
-    超过100MB文件下载地址：https://alist.zgqinc.gq/yoyodadada/好软分享/K/酷我音乐 ； https://zijieyunpan.com/RtA2Xy4oVVr ； https://www.123pan.com/s/JceA-kUfi ； https://pan.bilnn.cn/s/bwGzFO ； https://share.feijipan.com/s/zGAV8Sbi
+- 超过100MB文件下载地址：
++ https://alist.zgqinc.gq/yoyodadada/好软分享/K/酷我音乐
++ https://zijieyunpan.com/RtA2Xy4oVVr
++ https://www.123pan.com/s/JceA-kUfi
++ https://pan.bilnn.cn/s/bwGzFO
++ https://share.feijipan.com/s/zGAV8Sbi
 
 酷我音乐-PC版：https://yoyodadada.lanzouw.com/b01ay4hkh
 
@@ -448,13 +509,19 @@ Kodi：https://yoyodadada.lanzouw.com/b01e3tgxc#a9v3 密码:a9v3
 
 乐播投屏：https://yoyodadada.lanzouw.com/b01c6026d#hqxi 密码:hqxi
 
-    超过100MB文件下载地址：https://share.feijipan.com/s/4PCOUmDG ； https://www.123pan.com/s/JceA-n5ai.html
+- 超过100MB文件下载地址：
++ https://share.feijipan.com/s/4PCOUmDG
++ https://www.123pan.com/s/JceA-n5ai.html
 
 蓝云：https://yoyodadada.lanzouw.com/b01crl5gd#emqv 密码:emqv
 
 雷电模拟器-PC版：https://yoyodadada.lanzouw.com/b01ctft0h#esp8 密码:esp8
 
-    超过100MB文件下载地址：https://alist.zgqinc.gq/yoyodadada/好软分享/L/雷电模拟器-PC版 ； https://www.123pan.com/s/JceA-pUfi ； https://zijieyunpan.cn/uriyaSq83Ts ； https://share.feijipan.com/s/heA1bSWe
+- 超过100MB文件下载地址：
++ https://alist.zgqinc.gq/yoyodadada/好软分享/L/雷电模拟器-PC版
++ https://www.123pan.com/s/JceA-pUfi
++ https://zijieyunpan.cn/uriyaSq83Ts
++ https://share.feijipan.com/s/heA1bSWe
 
 蓝奏云盘-PC版（第三方蓝奏云客户端）：https://yoyodadada.lanzouw.com/b01fc8swh#d73u 密码:d73u
 
@@ -478,11 +545,14 @@ LSPatch：https://yoyodadada.lanzn.com/b0mb4d7ud#39rn 密码:39rn
 
 芒果TV：https://yoyodadada.lanzouw.com/b07psq3e
 
-    超过100MB文件下载地址：https://share.feijipan.com/s/Y3BVjl87
+- 超过100MB文件下载地址：
++ https://share.feijipan.com/s/Y3BVjl87
 
 MX_Player：https://yoyodadada.lanzouw.com/b07psqab
 
-    超过100MB文件下载地址：https://www.123pan.com/s/JceA-uMai ； https://zijieyunpan.cn/aKhRfMvvyFY
+- 超过100MB文件下载地址：
++ https://www.123pan.com/s/JceA-uMai
++ https://zijieyunpan.cn/aKhRfMvvyFY
 
 MUJI_to_Sleep：https://yoyodadada.lanzouw.com/b07psr6d
 
@@ -490,7 +560,8 @@ MUJI_to_Sleep：https://yoyodadada.lanzouw.com/b07psr6d
 
 美柚：https://yoyodadada.lanzouw.com/b07pt0xe
 
-    超过100MB文件下载地址：https://share.feijipan.com/s/vvCZMV3t
+- 超过100MB文件下载地址：
++ https://share.feijipan.com/s/vvCZMV3t
 
 魔力视频-TV版：https://yoyodadada.lanzouw.com/b07pt2ng
 
@@ -498,11 +569,15 @@ MUJI_to_Sleep：https://yoyodadada.lanzouw.com/b07psr6d
 
 美图秀秀：https://yoyodadada.lanzouw.com/b01bwl4ch
 
-    超过100MB文件下载地址：https://share.feijipan.com/s/xMBOSSfr ； https://www.123pan.com/s/JceA-Xoai
+- 超过100MB文件下载地址：
++ https://share.feijipan.com/s/xMBOSSfr
++ https://www.123pan.com/s/JceA-Xoai
 
 墨迹天气：https://yoyodadada.lanzouw.com/b01cdhakj#2m1v 密码:2m1v
 
-    超过100MB文件下载地址：https://alist.zgqinc.gq/yoyodadada/好软分享/M/墨迹天气 ； https://share.feijipan.com/s/zJAp9Ya5
+- 超过100MB文件下载地址：
++ https://alist.zgqinc.gq/yoyodadada/好软分享/M/墨迹天气
++ https://share.feijipan.com/s/zJAp9Ya5
 
 猫影视TV-TV版：https://yoyodadada.lanzouw.com/b01crl5kh#3u62 密码:3u62
 
@@ -524,13 +599,15 @@ MyInsta：https://yoyodadada.lanzn.com/b0malqb4f#eqp4 密码:eqp4
 
 米家：https://yoyodadada.lanzn.com/b0may08je#64hq 密码:64hq
 
-    超过100MB文件下载地址：https://share.feijipan.com/s/XLCwtFID
+- 超过100MB文件下载地址：
++ https://share.feijipan.com/s/XLCwtFID
 
 美团红包助手：https://yoyodadada.lanzn.com/b0may1hqb#acxz 密码:acxz
 
 Microsoft_365：https://yoyodadada.lanzn.com/b0mb3qivc#emv5 密码:emv5
 
-    超过100MB文件下载地址：https://alist.zgqinc.gq/yoyodadada/好软分享/M/Microsoft_365
+- 超过100MB文件下载地址：
++ https://alist.zgqinc.gq/yoyodadada/好软分享/M/Microsoft_365
 
 Momogram：https://yoyodadada.lanzn.com/b0mb4oacj#bg4j 密码:bg4j
 
@@ -558,7 +635,8 @@ Optimizer-PC版（系统设置工具）：https://yoyodadada.lanzn.com/b01g115te
 
 Office-PC版：https://yoyodadada.lanzn.com/b0mb4e8ej#es4x 密码:es4x
 
-    超过100MB文件下载地址：https://alist.zgqinc.gq/yoyodadada/好软分享/O/Office-PC版
+- 超过100MB文件下载地址：
++ https://alist.zgqinc.gq/yoyodadada/好软分享/O/Office-PC版
 
 ## 【P】
 
@@ -590,7 +668,10 @@ Photoshop-PC版：https://yoyodadada.lanzn.com/b0mb0eo5c#2gtf 密码:2gtf
 
 QQ音乐：https://yoyodadada.lanzouw.com/b07psr3a
 
-    超过100MB文件下载地址：https://www.123pan.com/s/JceA-wBMi.html ； https://zijieyunpan.cn/1dhkRT2V4nk ； https://share.feijipan.com/s/B7AV9Hk9
+- 超过100MB文件下载地址：
++ https://www.123pan.com/s/JceA-wBMi.html
++ https://zijieyunpan.cn/1dhkRT2V4nk
++ https://share.feijipan.com/s/B7AV9Hk9
 
 蜻蜓FM：https://yoyodadada.lanzouw.com/b07pt0ta
 
@@ -602,13 +683,18 @@ QQ轻聊版-PC版：https://yoyodadada.lanzouw.com/b07pv65e
 
 QQ：https://yoyodadada.lanzouw.com/b01b6ay1e 
 
-    超过100MB文件下载地址：https://share.feijipan.com/s/E2CPVwiS ； https://zijieyunpan.com/4o1nE3ssDpJ ； https://www.123pan.com/s/JceA-Lifi ； https://ihcloud.net/s/QdlntY
+- 超过100MB文件下载地址：
++ https://share.feijipan.com/s/E2CPVwiS
++ https://zijieyunpan.com/4o1nE3ssDpJ
++ https://www.123pan.com/s/JceA-Lifi
++ https://ihcloud.net/s/QdlntY
 
 QQ-PC版：https://yoyodadada.lanzouw.com/b01b7fkvg
 
 七猫免费小说：https://yoyodadada.lanzouw.com/b01c3kcmb#cd9y 密码:cd9y
 
-    超过100MB文件下载地址：https://share.feijipan.com/s/wQCQPv26
+- 超过100MB文件下载地址：
++ https://share.feijipan.com/s/wQCQPv26
 
 清浊：https://yoyodadada.lanzouw.com/b01ca6r5c#f1pr 密码:f1pr
 
@@ -628,7 +714,8 @@ rufus-PC版：https://yoyodadada.lanzouw.com/b07rx88d
 
 人人视频：https://yoyodadada.lanzouw.com/b01bh2x6b
 
-    超过100MB文件下载地址：https://www.123pan.com/s/JceA-TjBi.html
+- 超过100MB文件下载地址：
++ https://www.123pan.com/s/JceA-TjBi.html
 
 RevokeMsgPatcher-PC版（PC版微信QQTIM防撤回补丁）：https://yoyodadada.lanzouw.com/b01dbslaf#6hjg 密码:6hjg
 
@@ -640,7 +727,8 @@ Resume Builder（简历生成器）：https://yoyodadada.lanzouw.com/b01e6isng#3
 
 Raptor-PC版（第三方阿里云盘）：https://yoyodadada.lanzn.com/b01g1l53i#cx1g 密码:cx1g
 
-    超过100MB文件下载地址：https://www.123pan.com/s/JceA-pFMi.html
+- 超过100MB文件下载地址：
++ https://www.123pan.com/s/JceA-pFMi.html
 
 RevInsta（第三方Instagram）：https://yoyodadada.lanzn.com/b0magtx1c#gzp9 密码:gzp9
 
@@ -654,7 +742,11 @@ SD_Maid：https://yoyodadada.lanzouw.com/b07pt0fg
 
 扫描全能王：https://yoyodadada.lanzouw.com/b07pt10h
 
-    超过100MB文件下载地址：https://alist.zgqinc.gq/yoyodadada/好软分享/S/扫描全能王 ； https://zijieyunpan.cn/k5pQ9EPUjir ； https://www.123pan.com/s/JceA-w5ai.html ； https://share.feijipan.com/s/ZAAxDGFL
+- 超过100MB文件下载地址：
++ https://alist.zgqinc.gq/yoyodadada/好软分享/S/扫描全能王
++ https://zijieyunpan.cn/k5pQ9EPUjir
++ https://www.123pan.com/s/JceA-w5ai.html
++ https://share.feijipan.com/s/ZAAxDGFL
 
 搜狗输入法-PC版：https://yoyodadada.lanzouw.com/b07pv5xg
 
@@ -670,11 +762,17 @@ SoftCnKiller-PC版（流氓插件清理工具）：https://yoyodadada.lanzouw.co
 
 360浏览器-PC版：https://yoyodadada.lanzouw.com/b01d6hfle#bu23 密码:bu23 
 
-    超过100MB文件下载地址：https://alist.zgqinc.gq/yoyodadada/好软分享/S/360浏览器-PC版 ； https://zijieyunpan.cn/xUh0f9oS4Pi ； https://www.123pan.com/s/JceA-QoBi.html ； https://share.feijipan.com/s/2QAVypv8
+- 超过100MB文件下载地址：
++ https://alist.zgqinc.gq/yoyodadada/好软分享/S/360浏览器-PC版
++ https://zijieyunpan.cn/xUh0f9oS4Pi
++ https://www.123pan.com/s/JceA-QoBi.html
++ https://share.feijipan.com/s/2QAVypv8
 
 360手机浏览器：https://yoyodadada.lanzouw.com/b01d7cjkd#8zxc 密码:8zxc
 
-    超过100MB文件下载地址：https://zijieyunpan.cn/pXvYvWomuX8 ；https://www.123pan.com/s/JceA-4NBi.html
+- 超过100MB文件下载地址：
++ https://zijieyunpan.cn/pXvYvWomuX8
++ https://www.123pan.com/s/JceA-4NBi.html
 
 手机性能排行：https://yoyodadada.lanzouw.com/b01d7clch#eetu 密码:eetu
 
@@ -692,7 +790,8 @@ Share：https://yoyodadada.lanzouw.com/b01fi8lji#5p8q 密码:5p8q
 
 Spotify：https://yoyodadada.lanzn.com/b01g0l54d#1nmf 密码:1nmf
 
-    超过100MB文件下载地址：https://share.feijipan.com/s/kdCVajHl
+- 超过100MB文件下载地址：
++ https://share.feijipan.com/s/kdCVajHl
 
 什么值得买：https://yoyodadada.lanzn.com/b01g10jzi#88oi 密码:88oi
 
@@ -700,7 +799,10 @@ Spotify：https://yoyodadada.lanzn.com/b01g0l54d#1nmf 密码:1nmf
 
 腾讯视频：https://yoyodadada.lanzouw.com/b07psoqf 
 
-    超过100MB文件下载地址：https://zijieyunpan.com/0YuFXfFHoFQ ； https://www.123pan.com/s/JceA-ALai.html ； https://share.feijipan.com/s/ZxAVv6Mr
+- 超过100MB文件下载地址：
++ https://zijieyunpan.com/0YuFXfFHoFQ
++ https://www.123pan.com/s/JceA-ALai.html
++ https://share.feijipan.com/s/ZxAVv6Mr
 
 腾讯视频极速版：https://yoyodadada.lanzouw.com/b07psqde
 
@@ -708,13 +810,16 @@ Telegram：https://yoyodadada.lanzouw.com/b07psqij
 
 淘宝：https://yoyodadada.lanzouw.com/b07psrif
 
-    超过100MB文件下载地址：https://zijieyunpan.cn/83uqS2As7C0 ； https://www.123pan.com/s/JceA-uvBi.html
+- 超过100MB文件下载地址：
++ https://zijieyunpan.cn/83uqS2As7C0
++ https://www.123pan.com/s/JceA-uvBi.html
 
 太极：https://yoyodadada.lanzouw.com/b07pt0of
 
 Tim：https://yoyodadada.lanzouw.com/b07pts8h
 
-    超过100MB文件下载地址：https://www.123pan.com/s/JceA-jifi
+- 超过100MB文件下载地址：
++ https://www.123pan.com/s/JceA-jifi
 
 tTorrent_Pro：https://yoyodadada.lanzouw.com/b07ptsxc
 
@@ -722,7 +827,8 @@ Tim-PC版：https://yoyodadada.lanzouw.com/b01ay6ufc
 
 腾讯视频-PC版：https://yoyodadada.lanzouw.com/b01b1441i
 
-    超过100MB文件下载地址：https://share.feijipan.com/s/dbDzeG8O
+- 超过100MB文件下载地址：
++ https://share.feijipan.com/s/dbDzeG8O
 
 TV影院-TV版：https://yoyodadada.lanzouw.com/b01c4pi6h#al8e 密码:al8e
 
@@ -734,7 +840,11 @@ TV影院-TV版：https://yoyodadada.lanzouw.com/b01c4pi6h#al8e 密码:al8e
 
 TikTok：https://yoyodadada.lanzouw.com/b01e3tiof#f1a8 密码:f1a8
 
-    超过100MB文件下载地址：https://alist.zgqinc.gq/yoyodadada/好软分享/T/TikTok ； https://www.123pan.com/s/JceA-Uhai ； https://zijieyunpan.cn/FxV1Z8KoKgX ； https://share.feijipan.com/s/TQAVvpk5
+- 超过100MB文件下载地址：
++ https://alist.zgqinc.gq/yoyodadada/好软分享/T/TikTok
++ https://www.123pan.com/s/JceA-Uhai
++ https://zijieyunpan.cn/FxV1Z8KoKgX
++ https://share.feijipan.com/s/TQAVvpk5
     
 特狗影视：https://yoyodadada.lanzouw.com/b01e6iubg#casj 密码:casj
 
@@ -758,7 +868,8 @@ UU游戏加速器：https://yoyodadada.lanzouw.com/b01d4yacf#7ye0 密码:7ye0
 
 VSCO：https://yoyodadada.lanzouw.com/b07psq7i
 
-    超过100MB版本下载地址：https://share.feijipan.com/s/tfC7UH5W
+- 超过100MB版本下载地址：
++ https://share.feijipan.com/s/tfC7UH5W
 
 ViPER4Android_FX：https://yoyodadada.lanzouw.com/b07qdymh
 
@@ -766,7 +877,8 @@ Village：https://yoyodadada.lanzouw.com/b07skzmh
 
 VMOS：https://yoyodadada.lanzouw.com/b01dal5wd#4il0 密码：4il0
 
-    超过100MB版本下载地址：https://www.123pan.com/s/JceA-NAai
+- 超过100MB版本下载地址：
++ https://www.123pan.com/s/JceA-NAai
 
 via：https://yoyodadada.lanzn.com/b01g1lcda#5eih 密码:5eih
 
@@ -774,19 +886,28 @@ via：https://yoyodadada.lanzn.com/b01g1lcda#5eih 密码:5eih
 
 wifi万能钥匙：https://yoyodadada.lanzouw.com/b07pspej 
 
-    超过100MB文件下载地址：https://zijieyunpan.com/2vM55dN5eHC
+- 超过100MB文件下载地址：
++ https://zijieyunpan.com/2vM55dN5eHC
 
 网易公开课：https://yoyodadada.lanzouw.com/b07psphc
 
 WPS：https://yoyodadada.lanzouw.com/b07pspuf
 
-    超过100MB版本下载地址：https://alist.zgqinc.gq/yoyodadada/好软分享/W/WPS ； https://zijieyunpan.cn/CwJhwUSu0pN ； https://www.123pan.com/s/JceA-5zai.html ； https://share.feijipan.com/s/fiAWeWG7
+- 超过100MB版本下载地址：
++ https://alist.zgqinc.gq/yoyodadada/好软分享/W/WPS
++ https://zijieyunpan.cn/CwJhwUSu0pN
++ https://www.123pan.com/s/JceA-5zai.html
++ https://share.feijipan.com/s/fiAWeWG7
 
 完美视频大全：https://yoyodadada.lanzouw.com/b07psq1c
 
 网易云音乐：https://yoyodadada.lanzouw.com/b07psqkb 
 
-    超过100MB版本下载地址：https://www.123pan.com/s/JceA-0Ufi ； https://zijieyunpan.cn/TTNpmR4HsWO ； https://pan.bilnn.cn/s/Kwmwi9 ； https://share.feijipan.com/s/D9AV9fZG
+- 超过100MB版本下载地址：
++ https://www.123pan.com/s/JceA-0Ufi
++ https://zijieyunpan.cn/TTNpmR4HsWO
++ https://pan.bilnn.cn/s/Kwmwi9
++ https://share.feijipan.com/s/D9AV9fZG
 
 悟饭游戏厅：https://yoyodadada.lanzouw.com/b07psqzg
 
@@ -794,31 +915,47 @@ WPS：https://yoyodadada.lanzouw.com/b07pspuf
 
 微博：https://yoyodadada.lanzouw.com/b07pxk9e
 
-    超过100MB文件下载地址：https://alist.zgqinc.gq/yoyodadada/好软分享/W/微博 ； https://zijieyunpan.cn/XixoWMROTQo ； https://www.123pan.com/s/JceA-Pifi ； https://share.feijipan.com/s/qKAVvvYb
+- 超过100MB文件下载地址：
++ https://alist.zgqinc.gq/yoyodadada/好软分享/W/微博
++ https://zijieyunpan.cn/XixoWMROTQo
++ https://www.123pan.com/s/JceA-Pifi
++ https://share.feijipan.com/s/qKAVvvYb
 
 微软常用运行库合集-PC版：https://yoyodadada.lanzouw.com/b07pycad
 
-    超过100MB文件下载地址：https://zijieyunpan.cn/PjNQx5uj8jb
+- 超过100MB文件下载地址：
++ https://zijieyunpan.cn/PjNQx5uj8jb
 
 微软.NET离线运行库合集-PC版：https://yoyodadada.lanzouw.com/b07pycbe
 
-    超过100MB文件下载地址：https://www.123pan.com/s/JceA-wUfi 
+- 超过100MB文件下载地址：
++ https://www.123pan.com/s/JceA-wUfi 
 
 微软DirectX9.0c最终用户运行库-PC版：https://yoyodadada.lanzouw.com/b07pycdg 
 
-    超过100MB文件下载地址：https://zijieyunpan.com/EvMFQWWeVKW ； https://www.123pan.com/s/JceA-1Ufi 
+- 超过100MB文件下载地址：
++ https://zijieyunpan.com/EvMFQWWeVKW
++ https://www.123pan.com/s/JceA-1Ufi 
 
 我的听书：https://yoyodadada.lanzouw.com/b01b34a7c
 
 微信-PC版：https://yoyodadada.lanzouw.com/b01ban6ob 
 
-    超过100MB文件下载地址：https://zijieyunpan.com/UxpCk1F8h72 ； https://www.123pan.com/s/JceA-EUfi ； https://pan.bilnn.cn/s/1OQnSn ； https://share.feijipan.com/s/RkAxE2eY
+- 超过100MB文件下载地址：
++ https://zijieyunpan.com/UxpCk1F8h72
++ https://www.123pan.com/s/JceA-EUfi
++ https://pan.bilnn.cn/s/1OQnSn
++ https://share.feijipan.com/s/RkAxE2eY
 
 卧龙影视：https://yoyodadada.lanzouw.com/b01bdfw2f
 
 WPS-PC版：https://yoyodadada.lanzouw.com/b01c3bwhc#8fdh  密码:8fdh 
 
-    超过100MB文件下载地址：https://alist.zgqinc.gq/yoyodadada/好软分享/W/WPS-PC版 ； https://zijieyunpan.com/6XP5mgGDTaj ； https://www.123pan.com/s/JceA-3efi ； https://share.feijipan.com/s/jHAV91iq
+- 超过100MB文件下载地址：
++ https://alist.zgqinc.gq/yoyodadada/好软分享/W/WPS-PC版
++ https://zijieyunpan.com/6XP5mgGDTaj
++ https://www.123pan.com/s/JceA-3efi
++ https://share.feijipan.com/s/jHAV91iq
 
 WinRAR-PC版：https://yoyodadada.lanzouw.com/b01cdgqih#252n 密码:252n
 
@@ -826,11 +963,14 @@ WinRAR-PC版：https://yoyodadada.lanzouw.com/b01cdgqih#252n 密码:252n
 
 万彩办公大师-PC版：https://yoyodadada.lanzouw.com/b01cy58lc#eyrb 密码:eyrb 
 
-    超过100MB版本下载地址：https://www.123pan.com/s/JceA-1Sfi
+- 超过100MB版本下载地址：
++ https://www.123pan.com/s/JceA-1Sfi
     
 网易云音乐-PC版：https://yoyodadada.lanzouw.com/b01d9q8pi#cisa 密码:cisa
 
-    超过100MB版本下载地址：https://share.feijipan.com/s/URCjDICc ； https://www.123pan.com/s/JceA-1oBi.html
+- 超过100MB版本下载地址：
++  https://share.feijipan.com/s/URCjDICc
++ https://www.123pan.com/s/JceA-1oBi.html
 
 Windows系统调校-PC版：https://yoyodadada.lanzouw.com/b01dq265e#6abe 密码:6abe
 
@@ -840,11 +980,14 @@ win10优化小工具-PC版：https://yoyodadada.lanzouw.com/b01e6ijod#e99a 密�
 
 蜗牛云盘-PC版：https://yoyodadada.lanzouw.com/b01elge9g#hv6s 密码:hv6s
 
-    超过100MB版本下载地址：https://zijieyunpan.cn/H7fPGctEFa6 ； https://www.123pan.com/s/JceA-KVai.html
+- 超过100MB版本下载地址：
++ https://zijieyunpan.cn/H7fPGctEFa6
++ https://www.123pan.com/s/JceA-KVai.html
 
 微信：https://yoyodadada.lanzouw.com/b01f2ekkd#f8yl 密码:f8yl
 
-    超过100MB版本下载地址：https://www.123pan.com/s/JceA-S1Bi.html
+- 超过100MB版本下载地址：
++ https://www.123pan.com/s/JceA-S1Bi.html
 
 网易邮箱：https://yoyodadada.lanzouw.com/b01fi8r2h#ffo3 密码:ffo3
 
@@ -884,7 +1027,10 @@ X-Plore：https://yoyodadada.lanzouw.com/b07pt0hi
 
 喜马拉雅：https://yoyodadada.lanzouw.com/b01ayf0wd
 
-    超过100MB文件下载地址：https://alist.zgqinc.gq/yoyodadada/好软分享/X/喜马拉雅 ； https://www.123pan.com/s/JceA-udIi.html ； https://share.feijipan.com/s/7NAp3vfA
+- 超过100MB文件下载地址：
++ https://alist.zgqinc.gq/yoyodadada/好软分享/X/喜马拉雅
++ https://www.123pan.com/s/JceA-udIi.html
++ https://share.feijipan.com/s/7NAp3vfA
 
 迅游手游加速器：https://yoyodadada.lanzouw.com/b01b1444b
 
@@ -894,13 +1040,17 @@ X-Plore：https://yoyodadada.lanzouw.com/b07pt0hi
 
 小红书：https://yoyodadada.lanzouw.com/b01cahuri#bk35 密码:bk35 
 
-    超过100MB文件下载地址：https://www.123pan.com/s/JceA-W3Ji.html ； https://zijieyunpan.com/caxiLYYWEkG ； https://share.feijipan.com/s/zeAerFHE
+- 超过100MB文件下载地址：
++ https://www.123pan.com/s/JceA-W3Ji.html
++ https://zijieyunpan.com/caxiLYYWEkG
++ https://share.feijipan.com/s/zeAerFHE
 
 讯飞语记：https://yoyodadada.lanzouw.com/b01co9qad#et0k 密码:et0k
 
 小鸡模拟器：https://yoyodadada.lanzouw.com/b01d0c7uj#7j31 密码:7j31
 
-    超过100MB文件下载地址：https://www.123pan.com/s/JceA-sOIi.html
+- 超过100MB文件下载地址：
++ https://www.123pan.com/s/JceA-sOIi.html
 
 小鸡模拟器-TV版：https://yoyodadada.lanzouw.com/b01d4y8wd#7kgp 密码:7kgp
 
@@ -914,7 +1064,9 @@ X-Plore：https://yoyodadada.lanzouw.com/b07pt0hi
 
 讯飞输入法：https://yoyodadada.lanzouw.com/b01dlv23c#ecn5 密码:ecn5
 
-    超过100MB文件下载地址：https://www.123pan.com/s/JceA-s6Bi.html ； https://share.feijipan.com/s/XyAV9kFv
+- 超过100MB文件下载地址：
++ https://www.123pan.com/s/JceA-s6Bi.html
++ https://share.feijipan.com/s/XyAV9kFv
 
 小苹果影视-TV版：https://yoyodadada.lanzouw.com/b01dq2def#7sol 密码:7sol
 
@@ -930,17 +1082,22 @@ X-Plore：https://yoyodadada.lanzouw.com/b07pt0hi
 
 小伴龙：https://yoyodadada.lanzn.com/b0mawymfg#hl0y 密码:hl0y
 
-    超过100MB文件下载地址：https://alist.zgqinc.gq/yoyodadada/好软分享/X/小伴龙 ； https://share.feijipan.com/s/60CbMiMy
+- 超过100MB文件下载地址：
++ https://alist.zgqinc.gq/yoyodadada/好软分享/X/小伴龙
++ https://share.feijipan.com/s/60CbMiMy
 
 修改水印相机：https://yoyodadada.lanzn.com/b0may0ede#fj3t 密码:fj3t
 
-    超过100MB文件下载地址：https://alist.zgqinc.gq/yoyodadada/好软分享/X/修改水印相机 ； https://share.feijipan.com/s/YXCwRQXC
+- 超过100MB文件下载地址：
++ https://alist.zgqinc.gq/yoyodadada/好软分享/X/修改水印相机
++ https://share.feijipan.com/s/YXCwRQXC
 
 小飞机网盘：https://yoyodadada.lanzn.com/b0maz1dif#9dt5 密码:9dt5
 
 闲鱼：https://yoyodadada.lanzn.com/b0mb0fq7c#f4g9 密码:f4g9
 
-    超过100MB文件下载地址：https://share.feijipan.com/s/LsDB0l6l
+- 超过100MB文件下载地址：
++ https://share.feijipan.com/s/LsDB0l6l
 
 新浪邮箱：https://yoyodadada.lanzn.com/b0mb4iv5c#fe24 密码:fe24
 
@@ -950,11 +1107,15 @@ X-Plore：https://yoyodadada.lanzouw.com/b07pt0hi
 
 YouTube：https://yoyodadada.lanzouw.com/b07psqvc
 
-    超过100MB文件下载地址：https://zijieyunpan.cn/frOb7p0re7q ； https://www.123pan.com/s/JceA-ehBi.html
+- 超过100MB文件下载地址：
++ https://zijieyunpan.cn/frOb7p0re7q
++ https://www.123pan.com/s/JceA-ehBi.html
 
 优酷：https://yoyodadada.lanzouw.com/b07psreb
 
-    超过100MB文件下载地址：https://www.123pan.com/s/JceA-RVIi.html ； https://share.feijipan.com/s/fkAxEyYz
+- 超过100MB文件下载地址：
++ https://www.123pan.com/s/JceA-RVIi.html
++ https://share.feijipan.com/s/fkAxEyYz
 
 影视大全：https://yoyodadada.lanzouw.com/b07psrjg
 
@@ -974,7 +1135,9 @@ YouTube：https://yoyodadada.lanzouw.com/b07psqvc
 
 有道云笔记：https://yoyodadada.lanzouw.com/b01bwl3cb
 
-    超过100MB软件下载地址：https://www.123pan.com/s/JceA-5CMi.html ； https://share.feijipan.com/s/iiAVvh2I
+- 超过100MB超过100MB软件下载地址：
++ https://www.123pan.com/s/JceA-5CMi.html
++ https://share.feijipan.com/s/iiAVvh2I
 
 柚子TV-TV版：https://yoyodadada.lanzouw.com/b01co9lra#f5zp 密码:f5zp
 
@@ -1000,11 +1163,14 @@ YouKnow-TV版：https://yoyodadada.lanzouw.com/b01d1ng2h#5mju 密码:5mju
 
 123云盘：https://yoyodadada.lanzn.com/b01g10jbe#4d4g 密码:4d4g
 
-    超过100MB软件下载地址：https://share.feijipan.com/s/GKBjOiIO ； https://www.123pan.com/s/JceA-EJMi.html
+- 超过100MB软件下载地址：
++ https://share.feijipan.com/s/GKBjOiIO
++ https://www.123pan.com/s/JceA-EJMi.html
 
 123云盘-PC版：https://yoyodadada.lanzn.com/b01g1169a#3vuc 密码:3vuc
 
-    超过100MB软件下载地址：https://share.feijipan.com/s/ZhBzn9XX
+- 超过100MB软件下载地址：
++ https://share.feijipan.com/s/ZhBzn9XX
 
 Yamby：https://yoyodadada.lanzn.com/b0manptsd#7jwt 密码:7jwt
 
@@ -1012,13 +1178,16 @@ Yamby：https://yoyodadada.lanzn.com/b0manptsd#7jwt 密码:7jwt
 
 央视影音：https://yoyodadada.lanzn.com/b0mb2ozaf#1ywq 密码:1ywq
 
-    超过100MB软件下载地址：https://share.feijipan.com/s/IhDesv12
+- 超过100MB软件下载地址：
++ https://share.feijipan.com/s/IhDesv12
 
 ## 【Z】
 
 支付宝：https://yoyodadada.lanzouw.com/b07psrmj
 
-    超过100MB软件下载地址：https://www.123pan.com/s/JceA-B6ai.html ； https://share.feijipan.com/s/BdAge4TT
+- 超过100MB软件下载地址：
++ https://www.123pan.com/s/JceA-B6ai.html
++ https://share.feijipan.com/s/BdAge4TT
 
 知乎：https://yoyodadada.lanzouw.com/b07psrob
 
@@ -1028,7 +1197,8 @@ Yamby：https://yoyodadada.lanzn.com/b0manptsd#7jwt 密码:7jwt
 
 作业帮：https://yoyodadada.lanzn.com/b01g10ili#6sr8 密码:6sr8
 
-    超过100MB软件下载地址：https://www.123pan.com/s/JceA-QJMi.html
+- 超过100MB超过100MB软件下载地址：
++ https://www.123pan.com/s/JceA-QJMi.html
 
 真实好友：https://yoyodadada.lanzn.com/b0mb1xnta#cjza 密码:cjza
 
@@ -1038,7 +1208,9 @@ Yamby：https://yoyodadada.lanzn.com/b0manptsd#7jwt 密码:7jwt
 
 未归类：https://yoyodadada.lanzouw.com/b01b01h9a
 
-    超过100MB软件下载地址：https://www.123pan.com/s/JceA-vzfi ； https://share.feijipan.com/s/XjAV9rf2
+- 超过100MB超过100MB软件下载地址：
++ https://www.123pan.com/s/JceA-vzfi
++ https://share.feijipan.com/s/XjAV9rf2
 
 口罩相关标准（针对2019年新冠疫情）：https://yoyodadada.lanzouw.com/b01b77bdg
 
@@ -1046,15 +1218,20 @@ Yamby：https://yoyodadada.lanzn.com/b0manptsd#7jwt 密码:7jwt
 
 合集-硬件检测：https://yoyodadada.lanzouw.com/b01bwkyod
 
-    超过100MB软件下载地址：https://share.feijipan.com/s/D1C2jFXX
+- 超过100MB软件下载地址：
++ https://share.feijipan.com/s/D1C2jFXX
 
 合集-驱动管理：https://yoyodadada.lanzouw.com/b01bwkyqf
 
-    超过100MB软件下载地址：https://share.feijipan.com/s/HGB7T1nl ； https://www.123pan.com/s/JceA-3zfi ； https://zijieyunpan.cn/oPSq7zN1hBg
+- 超过100MB软件下载地址：
++ https://share.feijipan.com/s/HGB7T1nl
++ https://www.123pan.com/s/JceA-3zfi
++ https://zijieyunpan.cn/oPSq7zN1hBg
 
 TV、盒子端应用：https://yoyodadada.lanzouw.com/b01bwl23g
 
-    超过100MB软件下载地址：https://www.123pan.com/s/JceA-qyIi.html
+- 超过100MB超过100MB软件下载地址：
++ https://www.123pan.com/s/JceA-qyIi.html
 
 合集-激活工具：https://yoyodadada.lanzouw.com/b01by283a
 
@@ -1062,25 +1239,33 @@ TV、盒子端应用：https://yoyodadada.lanzouw.com/b01bwl23g
 
 PC端应用：https://yoyodadada.lanzouw.com/b01c63npg#er0q 密码:er0q 
 
-    部分超过100MB软件下载地址：https://share.feijipan.com/s/MyAV9u3B ； https://www.123pan.com/s/JceA-YUfi ；https://zijieyunpan.cn/BbuyDD1MJc0
+- 部分超过100MB软件下载地址：
++ https://share.feijipan.com/s/MyAV9u3B
++ https://www.123pan.com/s/JceA-YUfi ；https://zijieyunpan.cn/BbuyDD1MJc0
 
 合集-驾考：https://yoyodadada.lanzouw.com/b01cdh9qj#c80i 密码:c80i
 
-    部分超过100MB软件下载地址：https://share.feijipan.com/s/1iAVvX7w ； https://zijieyunpan.cn/2DMvMXNZhie ；https://www.123pan.com/s/JceA-2yfi
+- 部分超过100MB软件下载地址：
++ https://share.feijipan.com/s/1iAVvX7w
++ https://zijieyunpan.cn/2DMvMXNZhie ；https://www.123pan.com/s/JceA-2yfi
 
 合集-OCR文字识别：https://yoyodadada.lanzouw.com/b01csyvfc#7t2l 密码:7t2l
 
-    部分超过100MB软件下载地址：https://share.feijipan.com/s/ZBC3M92t
+- 部分超过100MB软件下载地址：
++ https://share.feijipan.com/s/ZBC3M92t
 
 JS脚本：https://yoyodadada.lanzouw.com/b01d4y3xe#6jnn 密码:6jnn
 
-    部分超过100MB软件下载地址：https://share.feijipan.com/s/atCFJPUq ； https://www.123pan.com/s/JceA-58Ji.html
+- 部分超过100MB软件下载地址：
++ https://share.feijipan.com/s/atCFJPUq
++ https://www.123pan.com/s/JceA-58Ji.html
 
 12306抢票类应用：https://yoyodadada.lanzouw.com/b01d6hf4h#b70k 密码:b70k
 
 360工具：https://yoyodadada.lanzouw.com/b01dk67eh#busr 密码:busr
 
-    部分超过100MB软件下载地址：https://share.feijipan.com/s/mZCQZQSX
+- 部分超过100MB软件下载地址：
++ https://share.feijipan.com/s/mZCQZQSX
 
 百度文库工具：https://yoyodadada.lanzouw.com/b01dlv3rc#1a5z 密码:1a5z
 
@@ -1088,31 +1273,42 @@ JS脚本：https://yoyodadada.lanzouw.com/b01d4y3xe#6jnn 密码:6jnn
 
 合集-AI（原ChatGPT相关）：https://yoyodadada.lanzouw.com/b01elg53g#cz9y 密码:cz9y
 
-    部分超过100MB软件下载地址：https://share.feijipan.com/s/yKAgbpIb ； https://www.123pan.com/s/JceA-H3Bi.html
+- 部分超过100MB软件下载地址：
++ https://share.feijipan.com/s/yKAgbpIb
++ https://www.123pan.com/s/JceA-H3Bi.html
 
 合集-游戏：https://yoyodadada.lanzouw.com/b01ftzljg#3adc 密码:3adc
 
-    部分超过100MB软件下载地址：https://share.feijipan.com/s/LeC6NbKX ； https://www.123pan.com/s/JceA-JGIi.html
+- 部分超过100MB软件下载地址：
++ https://share.feijipan.com/s/LeC6NbKX
++ https://www.123pan.com/s/JceA-JGIi.html
 
 合集-微商工具：https://yoyodadada.lanzn.com/b0magvmda#8g3w 密码:8g3w
 
-    部分超过100MB软件下载地址：https://alist.zgqinc.gq/yoyodadada/好软分享/未归类、合集/合集-微商工具 ； https://share.feijipan.com/s/S9Ayr4aD
+- 部分超过100MB软件下载地址：
++ https://alist.zgqinc.gq/yoyodadada/好软分享/未归类、合集/合集-微商工具
++ https://share.feijipan.com/s/S9Ayr4aD
 
 合集-联想电脑工具：https://yoyodadada.lanzn.com/b0mawudtc#95yg 密码:95yg
 
-    部分超过100MB软件下载地址：https://share.feijipan.com/s/y1C4mf5S
+- 部分超过100MB软件下载地址：
++ https://share.feijipan.com/s/y1C4mf5S
 
 合集-教学辅导：https://yoyodadada.lanzn.com/b0may06ra#bw9y 密码:bw9y
 
-    部分超过100MB软件下载地址：https://alist.zgqinc.gq/yoyodadada/好软分享/未归类、合集/合集-教学辅导 ； https://share.feijipan.com/s/3mDet6bQ
+- 部分超过100MB软件下载地址：
++ https://alist.zgqinc.gq/yoyodadada/好软分享/未归类、合集/合集-教学辅导
++ https://share.feijipan.com/s/3mDet6bQ
 
 合集-职考：https://yoyodadada.lanzn.com/b0may07nc#15sx 密码:15sx
 
-    部分超过100MB软件下载地址：https://share.feijipan.com/s/TdDetaXS
+- 部分超过100MB软件下载地址：
++ https://share.feijipan.com/s/TdDetaXS
 
 合集-提词器：https://yoyodadada.lanzn.com/b0may0b0d#ex3x 密码:ex3x
 
-    部分超过100MB软件下载地址：https://share.feijipan.com/s/ZNDASy0v
+- 部分超过100MB软件下载地址：
++ https://share.feijipan.com/s/ZNDASy0v
 
 合集-系统增强：https://yoyodadada.lanzn.com/b0may1h9e#1zf2 密码:1zf2
 

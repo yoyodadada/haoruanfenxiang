@@ -1,0 +1,43 @@
+name: Sync Fork
+
+on:
+  schedule:
+    - cron: '0 0 * * *' # 每天运行一次
+
+jobs:
+  sync:
+    runs-on: ubuntu-latest
+    steps:
+      - name: Checkout
+        uses: actions/checkout@v3
+
+      - name: Setup Git
+        run: |
+          git remote add upstream https://github.com/yoyodadada/haoruanfenxiang.git
+          # 获取上游仓库 URL
+          UPSTREAM_URL=$(git remote get-url upstream)
+          # 获取当前仓库 URL
+          ORIGIN_URL=$(git remote get-url origin)
+          echo "Upstream URL: $UPSTREAM_URL"
+          echo "Origin URL: $ORIGIN_URL"
+          # 检查是否相同，并设置环境变量
+          if [ "$UPSTREAM_URL" = "$ORIGIN_URL" ]; then
+            echo "Skipping sync because the upstream is the same as origin."
+            echo "SKIP_SYNC=true" >> $GITHUB_ENV
+          else
+            echo "SKIP_SYNC=false" >> $GITHUB_ENV
+          fi
+
+      - name: Fetch and Merge Upstream
+        if: env.SKIP_SYNC != 'true'
+        run: |
+          git fetch upstream
+          git checkout main
+          git merge upstream/main --allow-unrelated-histories
+
+      - name: Push Changes
+        if: env.SKIP_SYNC != 'true'
+        env:
+          GITHUB_TOKEN: ${{ secrets.GITHUB_TOKEN }}
+        run: |
+          git push origin main

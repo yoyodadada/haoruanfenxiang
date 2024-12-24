@@ -26,7 +26,7 @@ Telegram群组：https://t.me/haoruanfenxianggroup
 
 2021年3月19日：酷安账号被封，已卸载酷安，日后更新内容和下载地址将不会在酷安上通知。
 
-「好软分享」是酷安「姚小贱“精选软件”应用集」的衍生版，合并了「姚小贱“精选TV软件”应用集」，附加了PC软件，因此更名为「好软分享」。每次更新内容详见「UpdateLog」文件夹中对应的年月日，同时在Telegram频道广播中发布。
+「好软分享」是酷安「姚小贱“精选软件”应用集」的衍生版，合并了「姚小贱“精选TV软件”应用集」，附加了PC软件，因此更名为「好软分享」。每次更新内容详见「[UpdateLog](https://github.com/yoyodadada/haoruanfenxiang/tree/master/UpdateLog)」文件夹中对应的年月日，同时在Telegram频道广播中发布。
 
 注1：本项目发布的资源均为公开版，内部资源请加入Telegram频道或群组。
 
