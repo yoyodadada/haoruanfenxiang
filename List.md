@@ -200,6 +200,8 @@ CAD快速看图：https://yoyodadada.lanzn.com/b0mb3aovc#gs7z 密码:gs7z
 
 Cherrygram：https://yoyodadada.lanzn.com/b0mb4iumd#c13e 密码:c13e
 
+CCleaner：https://yoyodadada.lanzn.com/b0mb5px2j#3v7m 密码:3v7m
+
 ## 【D】
 
 电视猫-TV版：https://yoyodadada.lanzouw.com/b07pt2dg
