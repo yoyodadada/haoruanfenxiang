@@ -152,8 +152,9 @@ Bmap（白马地图）：https://yoyodadada.lanzouw.com/b01c13ojg#ht7i 密码:ht
 百度网盘-PC版：https://yoyodadada.lanzouw.com/b01c539xe#gx0l 密码:gx0l
 
 - 超过100MB文件下载地址：
-+ https://zijieyunpan.cn/208r0TXDOUm
-+ https://www.123pan.com/s/JceA-I5ai.html
++ https://alist.zgqinc.gq/yoyodadada/好软分享/B/百度地图
++ https://share.feijipan.com/s/8VBC4mLc
++ https://www.123pan.com/s/JceA-k6ai.html
 
 白菜追剧（兔子窝）：https://yoyodadada.lanzouw.com/b01cj7euj#er6s 密码:er6s
 
@@ -230,6 +231,8 @@ CIBN高清影视-TV版：https://yoyodadada.lanzouw.com/b01fi436d#7rey 密码:7r
 CAD快速看图：https://yoyodadada.lanzn.com/b0mb3aovc#gs7z 密码:gs7z
 
 Cherrygram：https://yoyodadada.lanzn.com/b0mb4iumd#c13e 密码:c13e
+
+CCleaner：https://yoyodadada.lanzn.com/b0mb5px2j#3v7m 密码:3v7m
 
 ## 【D】
 
@@ -699,6 +702,8 @@ QQ邮箱：https://yoyodadada.lanzouw.com/b01e6ir3a#frth 密码:frth
 全剧得：https://yoyodadada.lanzouw.com/b01e8ptpi#1p3d 密码:1p3d
 
 全民K歌-TV版：https://yoyodadada.lanzouw.com/b01fi427i#dsqi 密码:dsqi
+
+七猫免费听书：https://yoyodadada.lanzn.com/b0mb5pypi#2vza 密码:2vza
 
 ## 【R】
 
