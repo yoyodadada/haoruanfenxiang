@@ -1,0 +1,71 @@
+<!DOCTYPE html>
+<html lang="zh-CN">
+  <head>
+    <meta charset="UTF-8">
+    <meta http-equiv="X-UA-Compatible" content="IE=edge">
+    <meta name="viewport" content="width=device-width, initial-scale=1">
+    <title>好软分享</title>
+    <meta name="description" content="好软分享 " />
+    <meta property="og:url" content="" />
+    <meta property="og:type" content="website" />
+    <meta property="og:title" content="好软分享" />
+    <meta property="og:description" content="好软分享" />
+    <meta property="og:image" content="" />
+    <meta name="twitter:card" content="summary_large_image" />
+    <meta property="twitter:domain" content="" />
+    <meta property="twitter:url" content="" />
+    <meta name="twitter:title" content="好软分享" />
+    <meta name="twitter:description" content="好软分享" />
+    <meta name="twitter:image" content="" />
+    <link rel="icon" href="">
+	  
+    <link rel="stylesheet" href="../assets/css/styles.css">
+
+  </head>
+  <body>
+    <div class="wrapper">
+      <header>
+        <h1>好软分享</h1>
+        <h2><a href="https://github.com/yoyodadada/haoruanfenxiang">项目地址</a></h2>
+
+      </header>
+      <section>
+
+      {{ content }}
+
+      </section>
+      <footer>
+           <a href="https://github.com/yoyodadada/haoruanfenxiang">好软分享</p></a>
+        
+        <p>&copy;2024 好软分享.<span>All rights reserved</span>.</p>
+      </footer>
+    </div>
+
+    <script>
+      document.addEventListener("DOMContentLoaded", function () {
+        const regex = /(https?:\/\/[^\s]+)/g;
+    
+        function linkifyTextNodes(node) {
+          // 如果是文本节点，检查并替换链接
+          if (node.nodeType === Node.TEXT_NODE) {
+            const text = node.nodeValue;
+            if (regex.test(text)) {
+              const span = document.createElement("span");
+              span.innerHTML = text.replace(regex, function (url) {
+                return `<a href="${url}" target="_blank" rel="noopener">${url}</a>`;
+              });
+              node.replaceWith(span);
+            }
+          } else if (node.nodeType === Node.ELEMENT_NODE && node.tagName !== "A") {
+            // 遍历子节点，避免修改 <a> 标签中的内容
+            Array.from(node.childNodes).forEach(linkifyTextNodes);
+          }
+        }
+    
+        // 对整个 body 的子节点递归处理
+        linkifyTextNodes(document.body);
+      });
+    </script>
+    
+  </body>
+</html>

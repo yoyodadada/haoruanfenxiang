@@ -1,0 +1,82 @@
+/* 全局样式 */
+body {
+    font-family: Arial, sans-serif;
+    line-height: 1.6;
+    margin: 0;
+    padding: 0;
+    background-color: #f9f9f9;
+    color: #333;
+}
+
+/* 容器样式 */
+div {
+    max-width: 800px;
+    margin: 20px auto;
+    padding: 15px;
+    background: #ffffff;
+    border: 1px solid #ddd;
+    border-radius: 8px;
+    box-shadow: 0 2px 5px rgba(0, 0, 0, 0.1);
+}
+
+/* 标题样式 */
+h2 {
+    font-size: 1.8em;
+    margin-bottom: 10px;
+    color: #555;
+    text-align: center;
+}
+
+/* 列表样式 */
+ul {
+    list-style-type: none;
+    padding: 0;
+    margin: 0;
+}
+
+li {
+    padding: 10px 15px;
+    border-bottom: 1px solid #eee;
+    transition: background-color 0.2s ease-in-out;
+}
+
+li:last-child {
+    border-bottom: none;
+}
+
+/* 鼠标悬停效果 */
+li:hover {
+    background-color: #f5f5f5;
+}
+
+/* 链接样式 */
+a {
+    text-decoration: none;
+    color: #007bff;
+    font-weight: bold;
+    transition: color 0.2s ease-in-out;
+}
+
+a:hover {
+    color: #0056b3;
+}
+
+/* 标签样式 */
+span {
+    display: inline-block;
+    margin-left: 10px;
+    padding: 2px 6px;
+    font-size: 0.8em;
+    color: #1a1a1a;
+    background-color: #c4c8cb;
+    border-radius: 4px;
+    vertical-align: middle;
+}
+
+span.popular {
+    background-color: #28a745;
+}
+
+span.new {
+    background-color: #dc3545;
+}
