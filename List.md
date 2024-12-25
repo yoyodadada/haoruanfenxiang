@@ -1211,6 +1211,7 @@ Yamby：https://yoyodadada.lanzn.com/b0manptsd#7jwt 密码:7jwt
 未归类：https://yoyodadada.lanzouw.com/b01b01h9a
 
 - 超过100MB超过100MB软件下载地址：
++ https://cloud.189.cn/web/share?code=nYr6zyF7BVra#cq9s 密码:cq9s
 + https://www.123pan.com/s/JceA-vzfi
 + https://share.feijipan.com/s/XjAV9rf2
 
@@ -1282,6 +1283,7 @@ JS脚本：https://yoyodadada.lanzouw.com/b01d4y3xe#6jnn 密码:6jnn
 合集-游戏：https://yoyodadada.lanzouw.com/b01ftzljg#3adc 密码:3adc
 
 - 部分超过100MB软件下载地址：
++ https://cloud.189.cn/web/share?code=qEvYRreQBVbq#bgb7 密码:bgb7
 + https://share.feijipan.com/s/LeC6NbKX
 + https://www.123pan.com/s/JceA-JGIi.html
 
