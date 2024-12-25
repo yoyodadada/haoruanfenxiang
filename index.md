@@ -4,6 +4,8 @@ layout: default
 
 # 好软分享
 
+### https://haoruanfenxiang.pages.dev
+
 ### https://yoyodadada.github.io/haoruanfenxiang
 
 ## 项目地址：
@@ -16,9 +18,9 @@ GitHub：https://github.com/yoyodadada/haoruanfenxiang
 
 ## 软件列表（按软件名首字母归类）：
 
-GitHub：https://github.com/yoyodadada/haoruanfenxiang/blob/master/List.md
-
 pages.dev（免翻）：https://haoruanfenxiang.pages.dev/List
+
+GitHub：https://github.com/yoyodadada/haoruanfenxiang/blob/master/List.md
 
 ## TG频道及群组：
 
