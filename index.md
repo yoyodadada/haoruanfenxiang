@@ -2,33 +2,31 @@
 layout: default
 ---
 
-# 好软分享
-
 ### https://haoruanfenxiang.pages.dev
 
 ### https://yoyodadada.github.io/haoruanfenxiang
 
-## 项目地址：
+## 项目地址
 
 GitHub：https://github.com/yoyodadada/haoruanfenxiang
 
-## 下载地址（按更新时间倒序排列）：
+## 下载地址（按更新时间倒序排列）
 
 蓝奏主页：https://yoyodadada.lanzouw.com/u/yoyodadada
 
-## 软件列表（按软件名首字母归类）：
+## 软件列表（按软件名首字母归类）
 
 pages.dev（免翻）：https://haoruanfenxiang.pages.dev/List
 
 GitHub：https://github.com/yoyodadada/haoruanfenxiang/blob/master/List.md
 
-## TG频道及群组：
+## TG频道及群组
 
 Telegram频道：https://t.me/haoruanfenxiang
 
 Telegram群组：https://t.me/haoruanfenxianggroup
 
-## 说明：
+## 说明
 
 2021年3月19日：酷安账号被封，已卸载酷安，日后更新内容和下载地址将不会在酷安上通知。
 
@@ -40,7 +38,7 @@ Telegram群组：https://t.me/haoruanfenxianggroup
 
 注3：因受蓝奏限制，2023年9月19日以后分享的apk和ipa文件需要将手机浏览器UA调成电脑模式后才能下载，电脑浏览器下载不受影响。
 
-## 版权声明：
+## 版权声明
 
 ①根据二〇〇二年一月一日《计算机软件保护条例》规定：为了学习和研究软件内含的设计思想和原理，通过安装、显示、传输或者存储软件等方式使用软件的，可以不经软件著作权人许可，不向其支付报酬！
 

@@ -49,11 +49,11 @@
           if (node.nodeType === Node.TEXT_NODE) {
             const text = node.nodeValue;
             if (regex.test(text)) {
-              const span = document.createElement("span");
-              span.innerHTML = text.replace(regex, function (url) {
+              const p = document.createElement("p");
+              p.innerHTML = text.replace(regex, function (url) {
                 return `<a href="${url}" target="_blank" rel="noopener">${url}</a>`;
               });
-              node.replaceWith(span);
+              node.replaceWith(p);
             }
           } else if (node.nodeType === Node.ELEMENT_NODE && node.tagName !== "A") {
             // 遍历子节点，避免修改 <a> 标签中的内容
