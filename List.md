@@ -1217,7 +1217,7 @@ Yamby：https://yoyodadada.lanzn.com/b0manptsd#7jwt 密码:7jwt
 
 口罩相关标准（针对2019年新冠疫情）：https://yoyodadada.lanzouw.com/b01b77bdg
 
-电商平台抢购软件：https://yoyodadada.lanzouw.com/b01b77boh
+合集-抢购软件：https://yoyodadada.lanzouw.com/b01b77boh
 
 合集-硬件检测：https://yoyodadada.lanzouw.com/b01bwkyod
 
@@ -1231,16 +1231,16 @@ Yamby：https://yoyodadada.lanzn.com/b0manptsd#7jwt 密码:7jwt
 + https://www.123pan.com/s/JceA-3zfi
 + https://zijieyunpan.cn/oPSq7zN1hBg
 
-TV、盒子端应用：https://yoyodadada.lanzouw.com/b01bwl23g
+合集-TV端应用：https://yoyodadada.lanzouw.com/b01bwl23g
 
 - 超过100MB超过100MB软件下载地址：
 + https://www.123pan.com/s/JceA-qyIi.html
 
 合集-激活工具：https://yoyodadada.lanzouw.com/b01by283a
 
-电商平台活动工具：https://yoyodadada.lanzouw.com/b01c33fdi#a21b 密码:a21b
+合集-电商平台活动工具：https://yoyodadada.lanzouw.com/b01c33fdi#a21b 密码:a21b
 
-PC端应用：https://yoyodadada.lanzouw.com/b01c63npg#er0q 密码:er0q 
+合集-PC端应用：https://yoyodadada.lanzouw.com/b01c63npg#er0q 密码:er0q 
 
 - 部分超过100MB软件下载地址：
 + https://share.feijipan.com/s/MyAV9u3B
@@ -1257,24 +1257,24 @@ PC端应用：https://yoyodadada.lanzouw.com/b01c63npg#er0q 密码:er0q
 - 部分超过100MB软件下载地址：
 + https://share.feijipan.com/s/ZBC3M92t
 
-JS脚本：https://yoyodadada.lanzouw.com/b01d4y3xe#6jnn 密码:6jnn
+合集-js脚本及应用：https://yoyodadada.lanzouw.com/b01d4y3xe#6jnn 密码:6jnn
 
 - 部分超过100MB软件下载地址：
 + https://share.feijipan.com/s/atCFJPUq
 + https://www.123pan.com/s/JceA-58Ji.html
 
-12306抢票类应用：https://yoyodadada.lanzouw.com/b01d6hf4h#b70k 密码:b70k
+合集-12306抢票：https://yoyodadada.lanzouw.com/b01d6hf4h#b70k 密码:b70k
 
-360工具：https://yoyodadada.lanzouw.com/b01dk67eh#busr 密码:busr
+合集-360工具：https://yoyodadada.lanzouw.com/b01dk67eh#busr 密码:busr
 
 - 部分超过100MB软件下载地址：
 + https://share.feijipan.com/s/mZCQZQSX
 
-百度文库工具：https://yoyodadada.lanzouw.com/b01dlv3rc#1a5z 密码:1a5z
+合集-文库工具：https://yoyodadada.lanzouw.com/b01dlv3rc#1a5z 密码:1a5z
 
 合集-火绒工具：https://yoyodadada.lanzouw.com/b01dq24yb#aw9q 密码:aw9q
 
-合集-AI（原ChatGPT相关）：https://yoyodadada.lanzouw.com/b01elg53g#cz9y 密码:cz9y
+合集-AI工具：https://yoyodadada.lanzouw.com/b01elg53g#cz9y 密码:cz9y
 
 - 部分超过100MB软件下载地址：
 + https://share.feijipan.com/s/yKAgbpIb
@@ -1293,7 +1293,7 @@ JS脚本：https://yoyodadada.lanzouw.com/b01d4y3xe#6jnn 密码:6jnn
 + https://alist.zgqinc.gq/yoyodadada/好软分享/未归类、合集/合集-微商工具
 + https://share.feijipan.com/s/S9Ayr4aD
 
-合集-联想电脑工具：https://yoyodadada.lanzn.com/b0mawudtc#95yg 密码:95yg
+合集-联想工具：https://yoyodadada.lanzn.com/b0mawudtc#95yg 密码:95yg
 
 - 部分超过100MB软件下载地址：
 + https://share.feijipan.com/s/y1C4mf5S
@@ -1314,8 +1314,8 @@ JS脚本：https://yoyodadada.lanzouw.com/b01d4y3xe#6jnn 密码:6jnn
 - 部分超过100MB软件下载地址：
 + https://share.feijipan.com/s/ZNDASy0v
 
-合集-系统增强：https://yoyodadada.lanzn.com/b0may1h9e#1zf2 密码:1zf2
+合集-系统增强工具：https://yoyodadada.lanzn.com/b0may1h9e#1zf2 密码:1zf2
 
-合集-小米15定制版：https://yoyodadada.lanzn.com/b0mb1ngod#a71h 密码:a71h
+合集-特定机型定制版：https://yoyodadada.lanzn.com/b0mb1ngod#a71h 密码:a71h
 
 合集-虚拟定位：https://yoyodadada.lanzn.com/b0mb5g23a#a1r9 密码:a1r9
