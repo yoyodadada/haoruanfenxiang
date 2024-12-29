@@ -27,6 +27,12 @@ jobs:
             echo "SKIP_SYNC=false" >> $GITHUB_ENV
           fi
 
+      - name: Configure Git User
+        if: env.SKIP_SYNC != 'true'
+        run: |
+          git config user.name "GitHub Action"
+          git config user.email "action@github.com"
+
       - name: Fetch and Merge Upstream
         if: env.SKIP_SYNC != 'true'
         run: |
