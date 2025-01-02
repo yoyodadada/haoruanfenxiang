@@ -28,16 +28,22 @@ jobs:
             echo "SKIP_SYNC=false" >> $GITHUB_ENV
           fi
 
+      - name: Configure Git User
+        if: env.SKIP_SYNC != 'true'
+        run: |
+          git config user.name "GitHub Action"
+          git config user.email "action@github.com"
+
       - name: Fetch and Merge Upstream
         if: env.SKIP_SYNC != 'true'
         run: |
           git fetch upstream
-          git checkout main
-          git merge upstream/main --allow-unrelated-histories
+          git checkout master
+          git merge upstream/master --allow-unrelated-histories
 
       - name: Push Changes
         if: env.SKIP_SYNC != 'true'
         env:
           GITHUB_TOKEN: ${{ secrets.GITHUB_TOKEN }}
         run: |
-          git push origin main
+          git push origin master

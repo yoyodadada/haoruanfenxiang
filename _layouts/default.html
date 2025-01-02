@@ -26,7 +26,6 @@
     <div class="wrapper">
       <header>
         <h1>好软分享</h1>
-        <h2><a href="https://github.com/yoyodadada/haoruanfenxiang">项目地址</a></h2>
 
       </header>
       <section>
@@ -37,7 +36,7 @@
       <footer>
            <a href="https://github.com/yoyodadada/haoruanfenxiang">好软分享</p></a>
         
-        <p>&copy;2024 好软分享.<span>All rights reserved</span>.</p>
+        <p>&copy;2024 好软分享. All rights reserved.</p>
       </footer>
     </div>
 
@@ -50,11 +49,11 @@
           if (node.nodeType === Node.TEXT_NODE) {
             const text = node.nodeValue;
             if (regex.test(text)) {
-              const span = document.createElement("span");
-              span.innerHTML = text.replace(regex, function (url) {
+              const p = document.createElement("p");
+              p.innerHTML = text.replace(regex, function (url) {
                 return `<a href="${url}" target="_blank" rel="noopener">${url}</a>`;
               });
-              node.replaceWith(span);
+              node.replaceWith(p);
             }
           } else if (node.nodeType === Node.ELEMENT_NODE && node.tagName !== "A") {
             // 遍历子节点，避免修改 <a> 标签中的内容
